@@ -26,3 +26,5 @@
 23. Financial Fundamental + Technical Analysis + Application
 24. Bible Flash Cards
 25. Digital Collectibles Apps
+
+1. Cryptocurrency Dashboard
