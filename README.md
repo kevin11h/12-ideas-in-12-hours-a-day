@@ -28,3 +28,14 @@
 25. Digital Collectibles Apps
 
 1. Cryptocurrency Dashboard
+2. Measure Manage Mantra Book
+3. $SURVEY
+4. $QUESTION - $QUIZ
+5. $YOGA
+6. $SLEEP $DREAM
+7. Rest - Relax - Recover - Health
+8. Diet / Nutrition/ Liquidity
+9. Vest Style Clothe Product
+10. Renter's Credit
+11. Student / Learner's Credit
+12. Food product / Cookbook
