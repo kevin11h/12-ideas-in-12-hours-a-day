@@ -39,3 +39,16 @@
 10. Renter's Credit
 11. Student / Learner's Credit
 12. Food product / Cookbook
+
+1. UBI Hackathon
+2. Idea Voting
+3. $FEM
+4. Ezekial Breathing
+5. Wimble Nimble
+6. $TITLE
+7. International Remittance
+8. $NETWORK $ACCESS
+9. adultery am xf
+10. $ALIMONY
+11. $NUPT
+12. ethbay ethbrite
