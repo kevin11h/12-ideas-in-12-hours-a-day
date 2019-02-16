@@ -28,7 +28,7 @@
 25. Digital Collectibles Apps
 
 1. Cryptocurrency Dashboard
-2. Measure Manage Mantra Book
+2. Measure Manage Monetize Mantra Book
 3. $SURVEY
 4. $QUESTION - $QUIZ
 5. $YOGA
@@ -55,3 +55,24 @@
 
 1. Acumen
 2. Safe Driving
+3. Automatus autonomous publications
+4. Machina Productions
+5. hindjudainism
+6. private equity
+7. 12 minternships
+8. winternships
+9. Arbiter autonomous abritrage
+10. Velocity ventures
+11. coinvestor
+12. Tempest
+13. Coinnext
+14. Coinmpany
+15. Cypherpoll
+16. Coincubator
+17. syndicoin
+18. urban wisdom
+19. wysdome
+20. vinyard ventures
+
+
+
