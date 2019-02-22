@@ -7,7 +7,7 @@
 5. $MODE
 6. Song writing
 7. Patient
-8. Cryptonomicon
+8. Cryptonomicon Django
 9. Workbook "What good is it, my brothers, if someone says he has faith but does not have works? Can that faith save him? If a brother or sister is poorly clothed and lacking in daily food, and one of you says to them, “Go in peace, be warmed and filled,” without giving them the things needed for the body, what good is that? So also faith by itself, if it does not have works, is dead. But someone will say, “You have faith and I have works.” Show me your faith apart from your works, and I will show you my faith by my works"
 10. Alchemy Health
 11. Alchemy Wealth
@@ -101,4 +101,11 @@
 3. Word of the Day
 4. Forgiveness
 5. Presale - Preview - Refund
-6. 
+6. $SURF.it 
+7. Blocktion Auction
+8. Ascent
+9. Bible's Monetary Management, New Testament Wisdom
+https://en.wikipedia.org/wiki/Parables_of_Jesus
+10.
+11.
+12.
