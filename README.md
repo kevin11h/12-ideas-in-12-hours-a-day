@@ -116,3 +116,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 4.  Coinvention
 5.  Coincentive
 6.  Cointerview
+7.  Twitter -> book biography
