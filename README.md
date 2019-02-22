@@ -106,6 +106,6 @@
 8. Ascent
 9. Bible's Monetary Management, New Testament Wisdom
 https://en.wikipedia.org/wiki/Parables_of_Jesus
-10.
-11.
-12.
+10. Hymn, Homily
+11. World Art Tour
+12. World Wine Tour
