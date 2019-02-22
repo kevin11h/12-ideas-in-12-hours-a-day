@@ -111,3 +111,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 12. World Wine Tour
 
 1.  Cointernship
+2.  Crypto Penny Stocks https://en.wikipedia.org/wiki/Penny_stock
