@@ -120,3 +120,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 8.  Coinfident Coinfounder Coindexterity
 9.  Coinvestor
 10. Coinitiate
+11. Minternship, Winternship, Cointernship, Coinsultancy
+12. Coindustry
+
+1.  Plasticity ~= Plastic Surgery for Personality
