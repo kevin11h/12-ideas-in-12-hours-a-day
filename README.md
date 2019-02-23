@@ -126,3 +126,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 1.  Plasticity ~= Plastic Surgery for Personality
 2.  Coinvocation
 3.  Coin careers
+4.  Omnism
