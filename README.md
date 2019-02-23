@@ -128,4 +128,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 3.  Coin careers
 4.  Omnism
 5.  $subscribe. Subscription service
-
+6.  Coinfidentiality, Finality
+7. 
