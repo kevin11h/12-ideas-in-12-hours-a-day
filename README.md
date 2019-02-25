@@ -150,3 +150,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 12. minimal viable X ∈ {hackathon, product, startup company, pitch, party}
 
 1. math music school higher education
+2. pricing coinsultant
