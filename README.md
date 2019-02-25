@@ -132,8 +132,13 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 7.  Clean Clothes, online store
 8.  Good Food
 9.  Generosity
-10. "Live as if you were to die tomorrow. Learn as if you were to live forever."
+10. "Live as if you were to die tomorrow. Learn as if you were to live forever." - Ghandi
 11. https://www.gotquestions.org/valley-dry-bones.html
 12.  Purrity.io
 
 1. Business Models Cashflow
+2. Rapidity  
+3. Continuity
+4. Coincidence
+5. Koans
+6. accountability
