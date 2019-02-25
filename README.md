@@ -153,3 +153,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 2. pricing coinsultant
 3. sustainability business
 4. workation
+5. fluidity, liquidity, solidity
+6. θεία μανία
+7. fitness, nutrition fuel -> fire
