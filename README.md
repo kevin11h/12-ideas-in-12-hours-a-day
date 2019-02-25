@@ -129,4 +129,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 4.  Omnism
 5.  $subscribe. Subscription service
 6.  Coinfidentiality, Finality
-7. 
+7.  Clean Clothes, online store
+8.  Good Food
+9.  Generosity
+10.
