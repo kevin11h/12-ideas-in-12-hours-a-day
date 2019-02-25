@@ -156,3 +156,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 5. fluidity, liquidity, solidity
 6. θεία μανία
 7. fitness, nutrition fuel -> fire
+8. Blockchain Data Visualiation, Bitcoin Music Video
