@@ -142,3 +142,9 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 4. Coincidence
 5. Koans
 6. accountability
+7. Recycloin
+8. Re-Christian, name
+9. Restart-up
+10. Luke, Physics-Physician
+11. thereputation
+12. minimal viable X ∈ {hackathon, product, startup company, pitch, party}
