@@ -132,4 +132,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 7.  Clean Clothes, online store
 8.  Good Food
 9.  Generosity
-10.
+10. "Live as if you were to die tomorrow. Learn as if you were to live forever."
+11. https://www.gotquestions.org/valley-dry-bones.html
