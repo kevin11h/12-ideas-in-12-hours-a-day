@@ -147,7 +147,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 9. Restart-up
 10. Luke, Physics-Physician
 11. thereputation
-12. minimal viable X ∈ {hackathon, product, startup company, pitch, party}
+12. minimal viable X ∈ {hackathon, product, startup company, pitch, party, internship}
 
 1. math music school higher education
 2. pricing coinsultant
