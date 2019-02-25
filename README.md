@@ -148,3 +148,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 10. Luke, Physics-Physician
 11. thereputation
 12. minimal viable X ∈ {hackathon, product, startup company, pitch, party}
+
+1. math music school higher education
