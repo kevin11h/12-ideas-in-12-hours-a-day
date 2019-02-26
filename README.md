@@ -163,3 +163,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 12. Novelty
 
 1. Tea Tree
+2. Workshop
+3. Religion, Romance, Finance
+4. Primary Product Provider, Secondary Service Supplier, Tertiary Tither
+5. "For we did not follow cleverly devised fables when we made known to you the power and coming of our Lord Jesus Christ, but we were eyewitnesses of His majesty." 2 Peter 1:16
