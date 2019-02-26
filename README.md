@@ -157,7 +157,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 6. θεία μανία
 7. fitness, nutrition fuel -> fire
 8. Blockchain Data Visualiation, Bitcoin Music Video
-9. Price Graph, Radar Charts, Tree map
+9. Price Graph, Radar Charts https://www.visualcinnamon.com/2015/10/different-look-d3-radar-chart.html, Tree map
 10. Cornerstone
 11. Authenticity
 12. Novelty
