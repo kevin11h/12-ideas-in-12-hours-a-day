@@ -173,3 +173,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 9. FUnofficial City Art Hopping
 10. $READ $LITERACY
 11. Crypto recommendation engine
+12. Intensity, Brevity, Consistency, Simplicity
