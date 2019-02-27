@@ -174,3 +174,16 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 10. $READ $LITERACY
 11. Crypto recommendation engine
 12. Intensity, Brevity, Consistency, Simplicity
+
+1. Prescience
+2. Shaman, Shawoman
+3. 42, 27
+4. Children, Infants, Orphans
+5. Simplexity
+6. Hidden Flow
+7. Innovate
+8. Coinnovate
+9. Cointegrity
+10. Gracity
+11. Textist
+12. Measure Minutes Phone Usage
