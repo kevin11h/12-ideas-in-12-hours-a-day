@@ -169,3 +169,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 5. "For we did not follow cleverly devised fables when we made known to you the power and coming of our Lord Jesus Christ, but we were eyewitnesses of His majesty." 2 Peter 1:16
 6. Alchemy Wisdom
 7. Alchemy Love
+8. [Tetramorph](https://en.wikipedia.org/wiki/Tetramorph)
