@@ -191,3 +191,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 1. Divisibility
 2. Gardening
 3. Archon, Arkon, Avatar
+4. Felicity
+5. Fidelity
+6. Witty
+7.
