@@ -195,4 +195,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 5. Fidelity
 6. Witty
 7. Prefix
-8. 
+8. Coinvince, Competent & Complete, Coinstruct
