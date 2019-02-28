@@ -187,3 +187,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 10. Gracity
 11. Textist
 12. Measure Minutes Phone Usage
+
+1. Divisibility
+2. 
