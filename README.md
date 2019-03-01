@@ -196,3 +196,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 6. Witty
 7. Prefix
 8. Coinvince, Competent & Complete, Coinstruct
+9. Hero-ku cors-anywhere
