@@ -197,3 +197,11 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 7. Prefix
 8. Coinvince, Competent & Complete, Coinstruct
 9. Hero-ku cors-anywhere
+10.  Missing Stone, Soup Key Ingredient
+11. Smoked salmon + shot scotch
+12. Atrium
+
+1. Minimal Viable Email -> results&response&reactions
+2. Cointext, CoiNext, Coinning
+3. Coinsight
+4. 
