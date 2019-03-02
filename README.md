@@ -204,4 +204,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 1. Minimal Viable Email -> results&response&reactions
 2. Cointext, CoiNext, Coinning
 3. Coinsight
-4. 
+4. Chastity
+5. Cointeract
+6. 
