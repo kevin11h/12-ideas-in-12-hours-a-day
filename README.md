@@ -214,4 +214,10 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 11. Time
 12. Agility
 
-1. 
+1. Cointernational
+2. Schedule
+3. Calendar
+4. Proximity
+5. Aeternity
+6. 
+
