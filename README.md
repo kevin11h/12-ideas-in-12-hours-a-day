@@ -206,4 +206,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 3. Coinsight
 4. Chastity
 5. Cointeract
-6. 
+6. Coinversion
+7. Coinvestor
