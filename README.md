@@ -208,3 +208,10 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 5. Cointeract
 6. Coinversion
 7. Coinvestor
+8. Sustainability
+9. Netquity
+10. Acuity
+11. Time
+12. Agility
+
+1. 
