@@ -222,3 +222,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 6. Bezalel the Builder
 7. Oholiab
 8. Word Cloud
+9. Seshares
+10. Money the Mastery
+11. Re-Christian
