@@ -219,5 +219,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 3. Calendar
 4. Proximity
 5. Aeternity
-6. 
+6. Bezalel the Builder
+7. Oholiab
 
