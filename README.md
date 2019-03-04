@@ -229,4 +229,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 
 1.  Immortality
 2.  Imminence
-3.
+3.  Entity
+4.  Cointity
+5.  Imagine
+6. 
