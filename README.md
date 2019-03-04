@@ -225,3 +225,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 9. Seshares
 10. Money the Mastery
 11. Re-Christian
+12. Immanuel
+
+1.  Immortality
+2.  Imminence
+3.
