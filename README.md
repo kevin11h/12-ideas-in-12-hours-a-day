@@ -232,4 +232,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 3.  Entity
 4.  Cointity
 5.  Imagine
-6. 
+6.  Coindicator
