@@ -233,3 +233,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 4.  Cointity
 5.  Imagine
 6.  Coindicator
+7.  Attitude
+8.  Gratitude
+9.  Positivity
+10.
+11.
