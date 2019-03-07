@@ -238,7 +238,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 9.  Positivity
 10. Productivity
 11. Marketability
-12. 
+12. Alchedemically
 
 1.
 2.
