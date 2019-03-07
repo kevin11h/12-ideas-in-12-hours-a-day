@@ -236,5 +236,18 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 7.  Attitude
 8.  Gratitude
 9.  Positivity
+10. Productivity
+11. Marketability
+12. 
+
+1.
+2.
+3.
+4.
+5.
+6.
+7.
+8.
+9.
 10.
 11.
