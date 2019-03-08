@@ -240,8 +240,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 11. Marketability
 12. Alchedemically
 
-1.
-2.
+1. Creativity
+2. 
 3.
 4.
 5.
