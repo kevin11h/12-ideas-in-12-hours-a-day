@@ -242,8 +242,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 
 1. Creativity
 2. Traceability
-3. 
-4.
+3. Example
+4. 
 5.
 6.
 7.
@@ -251,3 +251,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 9.
 10.
 11.
+12.
