@@ -241,8 +241,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 12. Alchedemically
 
 1. Creativity
-2. 
-3.
+2. Traceability
+3. 
 4.
 5.
 6.
