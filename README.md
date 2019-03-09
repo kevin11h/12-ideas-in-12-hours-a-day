@@ -245,8 +245,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 3. Example
 4. CuteCoin
 5. Cutivity
-6.
-7.  
+6. Admirability
+7. Adorability  
 8.
 9.
 10.
