@@ -243,10 +243,10 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 1. Creativity
 2. Traceability
 3. Example
-4. 
-5.
+4. CuteCoin
+5. Cutivity
 6.
-7.
+7.  
 8.
 9.
 10.
