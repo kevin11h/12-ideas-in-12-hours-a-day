@@ -247,8 +247,10 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 5. Cutivity
 6. Admirability
 7. Adorability  
-8.
-9.
-10.
-11.
-12.
+8. Reproducability
+9. Coinventures
+10. Coingenius
+11. Fountainheart Ventures
+12. Fountain Ventures
+
+1.
