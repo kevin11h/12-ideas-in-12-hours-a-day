@@ -263,5 +263,9 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 8. Signed Books Assets
 9. Aged Wine Assets
 10. World Hacker Scholarships
-11.
-12.
+11. ROPE - Renew Optimism Progressive Energy
+12. Optimist
+
+1. Perpetuity
+2. Annuity
+3.
