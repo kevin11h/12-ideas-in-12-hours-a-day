@@ -275,6 +275,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 7. Coinvention
 8. Lotus Labs l2
 9. Cointent.ious
-10.
-11.
-12.
+10. World Palace Tour
+11. CoinKingdom
+12. Token Palace
+
+1. World Mansion Tour
