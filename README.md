@@ -288,3 +288,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 7. Cointrinsic
 8. Cointerconnect
 9. Coinnect
+10. Self-Similarity
+11. Fractals
+12. Anti-Fragility
+
+1. Robust Repoducability
