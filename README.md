@@ -269,8 +269,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 1. Perpetuity
 2. Annuity
 3. World Health Travel Tour -> Outracing the Sun, Journey to the West
-4.
-5.
+4. GeniusBlock
+5. World Journalist Tour
 6.
 7.
 8.
