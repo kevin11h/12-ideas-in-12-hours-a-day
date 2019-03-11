@@ -271,8 +271,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 3. World Health Travel Tour -> Outracing the Sun, Journey to the West
 4. GeniusBlock
 5. World Journalist Tour
-6. BeyondChain
-7.
+6. Beyond
+7. Coinvention
 8.
 9.
 10.
