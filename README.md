@@ -307,3 +307,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 
 1. Coinsolvency
 2. Coinvoice
+3. GospelBot - Twitter
+4.
+5.
+6.
+7.
