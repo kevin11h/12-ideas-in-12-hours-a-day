@@ -304,3 +304,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 10. Simplicity
 11. Recreativity
 12. Play and Practice Maketh the Master
+
+1. Coinsolvent
