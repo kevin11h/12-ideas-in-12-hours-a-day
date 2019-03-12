@@ -293,3 +293,14 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 12. Anti-Fragility
 
 1. Robust Repoducability
+2. Body Check
+3. Awareness
+4. Consciousness Expansion
+5. Rising Above the Mind
+6. Mindfullness - Meditation - Mantra
+7. Fountain - Foundation - Foundry
+8. Peace - Prayer
+9. Renew the Mind
+10. Simplicity
+11. Recreativity
+12. Play and Practice Maketh the Master
