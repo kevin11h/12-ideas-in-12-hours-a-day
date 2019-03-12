@@ -311,4 +311,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 4. Neologisms and Coinages
 5. Auction - Closed Companies
 6. Community  = Customers + Market
-7.
+7. Coinnectivity
