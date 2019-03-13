@@ -313,3 +313,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 6. Community  = Customers + Market
 7. Coinnectivity
 8. Communication -> Community = Customers + Market
+9. iCoin
