@@ -318,6 +318,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 11. World International Studies Tour
 12. Link.life <- "Social Network for Websites" Corporation Personality / Identity
 
-1.
+1. Minimal Viable Game
 2.
 3.
