@@ -319,5 +319,14 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 12. Link.life <- "Social Network for Websites" Corporation Personality / Identity
 
 1. Minimal Viable Game
-2.
-3.
+2. Day Dream
+3. Relax
+4. Smile :)
+5. Stumbling block = Cornerstone
+6.
+7.
+8.
+9.
+10.
+11.
+12.
