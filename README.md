@@ -316,3 +316,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 9. iCoin
 10. World Business School Scholarship
 11. World International Studies Tour
+12. Link.life <- "Social Network for Websites" Corporation Personality / Identity
+
+1.
+2.
+3.
