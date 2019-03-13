@@ -314,3 +314,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 7. Coinnectivity
 8. Communication -> Community = Customers + Market
 9. iCoin
+10. World Business School Scholarship
+11. World International Studies Tour
