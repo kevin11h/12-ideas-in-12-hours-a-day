@@ -312,3 +312,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 5. Auction - Closed Companies
 6. Community  = Customers + Market
 7. Coinnectivity
+8. Communication -> Community = Customers + Market
