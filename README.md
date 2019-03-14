@@ -325,7 +325,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 5. Stumbling block = Cornerstone
 6. Ubiquity
 7. Proximity
-8.
+8. versatility
 9.
 10.
 11.
