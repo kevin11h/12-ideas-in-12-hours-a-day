@@ -323,8 +323,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 3. Relax
 4. Smile :)
 5. Stumbling block = Cornerstone
-6.  Ubiquity
-7.
+6. Ubiquity
+7. Proximity
 8.
 9.
 10.
