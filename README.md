@@ -326,7 +326,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 6. Ubiquity
 7. Proximity
 8. versatility
-9.
-10.
+9. Immutability
+10. Relax, Be at Home, Be Yourself, BeYond
 11.
 12.
