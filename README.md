@@ -331,4 +331,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 11. quaternity
 12. Renew, Remember, Refresh
 
-1.
+1. Remedy
+2. Antiquity
+3. Ambrosia, Akrasia
+4. 
