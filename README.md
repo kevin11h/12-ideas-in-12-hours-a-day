@@ -334,4 +334,12 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 1. Remedy
 2. Antiquity
 3. Ambrosia, Akrasia
-4. 
+4. Preview
+5.
+6.
+7.
+8.
+9.
+10.
+11.
+12.
