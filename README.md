@@ -328,5 +328,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 8. versatility
 9. Immutability
 10. Relax, Be at Home, Be Yourself, BeYond
-11.
+11. quaternity
 12.
