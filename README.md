@@ -335,8 +335,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 2. Antiquity
 3. Ambrosia, Akrasia
 4. Preview
-5.
-6.
+5. Sequence + Structure
+6. Homily
 7.
 8.
 9.
