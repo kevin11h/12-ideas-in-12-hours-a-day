@@ -337,7 +337,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 4. Preview
 5. Sequence + Structure
 6. Homily
-7.
+7. Spontaneity
 8.
 9.
 10.
