@@ -338,8 +338,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 5. Sequence + Structure
 6. Homily
 7. Spontaneity
-8.
-9.
+8. Quiescent
+9. Effervescent Personality
 10.
 11.
 12.
