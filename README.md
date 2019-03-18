@@ -343,3 +343,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 10. Artifakt - World Art Tour + Blockchain
 11. Vitality
 12. Affinity
+
+1.  Proactivity
