@@ -346,4 +346,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 
 1.  Proactivity
 2.  Be Belong Become Beyond
-3.  Subscribe -> Register -> Accountables -> Payments -> Product
+3.  Subscribe -> Register -> Account Recievables -> Payments -> Product -> Action
+4.  Receptibility
+5.  Recievability
