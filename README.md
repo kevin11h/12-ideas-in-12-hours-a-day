@@ -341,5 +341,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 8. Quiescent
 9. Effervescent Personality
 10. Artifakt - World Art Tour + Blockchain
-11.
-12.
+11. Vitality
+12. Affinity
