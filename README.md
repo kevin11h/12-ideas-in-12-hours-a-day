@@ -340,6 +340,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 7. Spontaneity
 8. Quiescent
 9. Effervescent Personality
-10.
+10. Artifakt - World Art Tour + Blockchain
 11.
 12.
