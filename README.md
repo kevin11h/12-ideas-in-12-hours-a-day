@@ -345,3 +345,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 12. Affinity
 
 1.  Proactivity
+2.  Be Belong Become Beyond
+3.  Subscribe -> Register -> Accountables -> Payments -> Product
