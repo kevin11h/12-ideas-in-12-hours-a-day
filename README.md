@@ -345,7 +345,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 12. Affinity
 
 1.  Proactivity
-2.  Be Belong Become Beyond
+2.  Be Belong Become Believe Beyond
 3.  Subscribe -> Register -> Account Recievables -> Payments -> Product -> Action
 4.  Receptibility
 5.  Recievability
@@ -354,3 +354,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 8.  Arcade Block Ventures
 9.  Subscription, Access Online Membership
 10. Automation
+11. Believe in Yourself = Be.. You...
