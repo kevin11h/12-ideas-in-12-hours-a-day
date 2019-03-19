@@ -355,3 +355,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 9.  Subscription, Access Online Membership
 10. Automation
 11. Believe in Yourself = Be.. You...
+12. Automated Income
