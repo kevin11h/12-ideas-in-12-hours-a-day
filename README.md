@@ -356,3 +356,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 10. Automation
 11. Believe in Yourself = Be.. You...
 12. Automated Income
+
+1.  Subscription/Registration -> Payment/Prizes -> Distribution
