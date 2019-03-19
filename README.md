@@ -346,7 +346,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 
 1.  Proactivity
 2.  Be Belong Become Believe Beyond
-3.  Subscribe -> Register -> Account Recievables -> Payments -> Product -> Action
+3.  Subscribe -> Register -> Account Recievables -> Payments -> Product -> Action = {Distribution , Event, Activity, Transaction, Confirmation, Notification, Option }
 4.  Receptibility
 5.  Recievability
 6.  World Wonders Tour
