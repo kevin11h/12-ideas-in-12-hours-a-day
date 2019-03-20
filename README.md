@@ -366,3 +366,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 Asset -> Brand -> Product lines
 6. Five Essential Elements Cookbook
 7. Increase Awareness + Observation
+8. Software on Software Service Business (model) S^2 / S^3 / S3B
