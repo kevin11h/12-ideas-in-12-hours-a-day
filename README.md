@@ -361,3 +361,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 2.  $ACCOUNT $REGISTRATION $CONSENT
 3.  Arkiv -> Archive
 4. Aphor.ist -> Viral Memes Subscription Quotes Lives Educational EdTech
+5. Sequel - Creative Media Franchise Business Model -> Ebook -> Book -> Audiobook -> App (web, mobile) -> Comics -> Cosplay -> Action Figures -> boardgame -> trading cards -> movie -> television series
+
+Asset -> Brand -> Product lines
