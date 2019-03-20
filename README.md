@@ -364,3 +364,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 5. Sequel - Creative Media Franchise Business Model -> Ebook -> Book -> Audiobook -> App (web, mobile) -> Comics -> Cosplay -> Action Figures -> boardgame -> trading cards -> movie -> television series
 
 Asset -> Brand -> Product lines
+6. Five Essential Elements Cookbook
