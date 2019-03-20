@@ -360,4 +360,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 1.  Subscription/Registration -> Payment/Prizes -> Distribution
 2.  $ACCOUNT $REGISTRATION $CONSENT
 3.  Arkiv -> Archive
-4. Aphor.ist -> Meme Subscription Quotes Lives
+4. Aphor.ist -> Viral Memes Subscription Quotes Lives
