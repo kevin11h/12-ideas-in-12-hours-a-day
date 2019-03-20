@@ -358,3 +358,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 12. Automated Income
 
 1.  Subscription/Registration -> Payment/Prizes -> Distribution
+2.  $ACCOUNT $REGISTRATION $CONSENT
+3.  Arkiv -> Archive
