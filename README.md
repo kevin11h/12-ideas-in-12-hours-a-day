@@ -370,3 +370,4 @@ Asset -> Brand -> Product lines
 9. Crypto Farmer's (Fair Trade) Market
 10. Package Distribution
 11. Contribute, Participate, Active Growth
+12.  Universal Currencies { Time, Energy, Information / Education, Health, Language }
