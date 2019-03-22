@@ -369,3 +369,4 @@ Asset -> Brand -> Product lines
 8. Software on Software Service Business (model) S^2 / S^3 / S3B
 9. Crypto Farmer's (Fair Trade) Market
 10. Package Distribution
+11. Contribute, Participate, Active Growth
