@@ -379,3 +379,4 @@ Asset -> Brand -> Product lines
 5.  Subscription Register to Ubiquity Recurring Hackathon.  How do I subscribe to a UBI program?
 6.  Prioritize.  Be brief
 7.  Calendar.  Pay self first. Health + Time > $
+8.  Crypto Keep Key Kingdom
