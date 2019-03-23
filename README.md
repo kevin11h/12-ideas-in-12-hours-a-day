@@ -371,3 +371,7 @@ Asset -> Brand -> Product lines
 10. Package Distribution
 11. Contribute, Participate, Active Growth
 12.  Universal Currencies { Time, Energy, Information / Education, Health, Language }
+
+1.  Inclusivity
+2.  Exclusivity
+3.  Trinity
