@@ -380,3 +380,4 @@ Asset -> Brand -> Product lines
 6.  Prioritize.  Be brief
 7.  Calendar.  Pay self first. Health + Time > $
 8.  Crypto Keep Key Kingdom
+9.  Coinstory
