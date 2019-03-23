@@ -376,3 +376,6 @@ Asset -> Brand -> Product lines
 2.  Exclusivity
 3.  Trinity
 4.  Coinsortium
+5.  Subscription Register to Ubiquity Recurring Hackathon.  How do I subscribe to a UBI program?
+6.  Prioritize.  Be brief
+7.  Calendar.  Pay self first. Health + Time > $
