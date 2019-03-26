@@ -383,3 +383,6 @@ Asset -> Brand -> Product lines
 9.  Coinstory
 10.  Sun Sea Salt Pure child
 11.  KYC = {Customer Community Market Demographics} KYY KISS CYA
+12.  Aegis
+
+1.
