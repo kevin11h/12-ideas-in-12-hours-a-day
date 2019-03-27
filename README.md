@@ -384,4 +384,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 12.  Aegis
 
 1. Codility
-2. 
+2. Vegas, LA, Hawaii, New Zealand, Bali, Hainan, Hong Kong, Taiwan, Bhutan, kazakhstan, Moscow, St. Petersburg, ... Other good cities in Europe transcaucasia  ..., Scotland/ireland, toronto, nyc, florida, Vegas, LA
+3. Vegas, LA, Hawaii, Taiwan, Hong Kong, Hainan, Bhutan, kazakhstan, Moscow, St. Petersburg, ... Other good cities in Europe / transcaucasia ..., Scotland/ireland, toronto, nyc, florida, Vegas, LA
