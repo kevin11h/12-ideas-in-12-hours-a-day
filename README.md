@@ -388,3 +388,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 3. Vegas, LA, Hawaii, Taiwan, Hong Kong/Hainan, Shenzhen, Bhutan, kazakhstan, Moscow, St. Petersburg, ... Other good cities in Europe / transcaucasia ..., Scotland/ireland, toronto, nyc, florida, Vegas, LA
 4. Avacado Chocolate Mole .  Bitter + Sweet + Sour/Acidic
 5. Avacado , Eggs, Salmon, Potatoes, Beans / Legumes, Fruits / Veggies - Carrot, Kale, Dark Greens , Chocolate, Cumin
+6.  Meditation , Concentration, Focus, Target, Point, Center
