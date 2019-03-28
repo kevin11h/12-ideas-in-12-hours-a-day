@@ -389,3 +389,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 4. Avacado Chocolate Mole .  Bitter + Sweet + Sour/Acidic
 5. Avacado , Eggs, Salmon, Potatoes, Beans / Legumes, Fruits / Veggies - Carrot, Kale, Dark Greens , Chocolate, Cumin
 6.  Meditation , Concentration, Focus, Target, Point, Center
+7.  Municipality
+8.  Multiplicity
