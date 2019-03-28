@@ -386,3 +386,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 1. Codility
 2. Vegas, LA, Hawaii, New Zealand, Bali, Hong Kong/Hainan, Shenzhen, Taiwan, Bhutan, kazakhstan, Moscow, St. Petersburg, ... Other good cities in Europe transcaucasia  ..., Scotland/ireland, toronto, nyc, florida, Vegas, LA
 3. Vegas, LA, Hawaii, Taiwan, Hong Kong/Hainan, Shenzhen, Bhutan, kazakhstan, Moscow, St. Petersburg, ... Other good cities in Europe / transcaucasia ..., Scotland/ireland, toronto, nyc, florida, Vegas, LA
+4. Avacado Chocolate Mole .  Bitter + Sweet + Sour/Acidic
