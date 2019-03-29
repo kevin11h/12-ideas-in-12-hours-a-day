@@ -391,3 +391,9 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 6.  Meditation , Concentration, Focus, Target, Point, Center
 7.  Municipality
 8.  Multiplicity
+9.  Stargazer
+10. Stargate
+11. Skyport
+12. Skyportability
+
+1. 
