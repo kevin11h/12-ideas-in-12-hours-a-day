@@ -396,4 +396,8 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 11. Skyport
 12. Skyportability
 
-1. 
+1. Premium
+2.
+3.
+4.
+5.
