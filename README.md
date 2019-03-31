@@ -399,5 +399,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 1. Premium
 2. Works of Christ
 3. Subscribe Hackathon
-4.
-5.
+4. Coinvent.io
+5. Inspire Fire Inspirational Viral Memes
+6. 
