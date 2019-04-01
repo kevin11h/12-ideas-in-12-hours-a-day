@@ -413,3 +413,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 1. Cointrinsic
 2. Magisty
 3. Adages, Neologisms, and Ckoains
+4. Beyond the Stars
