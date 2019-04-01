@@ -401,4 +401,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 3. Subscribe Hackathon
 4. Coinvent.io
 5. Inspire Fire Inspirational Viral Memes
-6. 
+6. International Real Estate Investors Tour 
+7. Finnovation Ventures
+8. Finnovation Coinstrumentation
