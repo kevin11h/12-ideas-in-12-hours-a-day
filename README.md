@@ -411,3 +411,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 12. Fool's
 
 1. Cointrinsic
+2. Magisty
+3. Adages, Neologisms, and Ckoains
