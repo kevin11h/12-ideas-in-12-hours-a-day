@@ -404,3 +404,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 6. International Real Estate Investors Tour 
 7. Finnovation Ventures
 8. Finnovation Coinstrumentation
+9. Cornerstone Capital
+10. FounderBlock Ventures
+11. Super World Entrepreneurship Art Tour = S.W.E.A.T
+12. Parody Papers Athenian
