@@ -408,3 +408,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 10. FounderBlock Ventures
 11. Super World Entrepreneurship Art Tour = S.W.E.A.T
 12. Parody Papers Athenian
+12. Fool's
+
+1. 
