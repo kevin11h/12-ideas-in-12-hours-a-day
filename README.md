@@ -414,3 +414,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 2. Magisty
 3. Adages, Neologisms, and Ckoains
 4. Beyond the Stars
+5. Creative Visualization, Dreaming
+6. 100 Questions a Day
