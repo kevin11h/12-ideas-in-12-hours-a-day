@@ -417,3 +417,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 5. Creative Visualization, Dreaming
 6. 100 Questions a Day
 7. Meditative Mode of Inquiry
+8. Subscripture.  Subscrypt
+9.
+10.
+11.
