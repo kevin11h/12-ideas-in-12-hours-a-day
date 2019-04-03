@@ -421,4 +421,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 9. Scholarship Hedgefund Hybrid
 10. Immensity
 11. Steemit
-12.
+12.  Daily Wisdom
+
+
