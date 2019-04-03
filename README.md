@@ -418,6 +418,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 6. 100 Questions a Day
 7. Meditative Mode of Inquiry
 8. Subscripture.  Subscrypt
-9.
+9. Scholarship Hedgefund Hybrid
 10.
 11.
