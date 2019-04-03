@@ -416,3 +416,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 4. Beyond the Stars
 5. Creative Visualization, Dreaming
 6. 100 Questions a Day
+7. Meditative Mode of Inquiry
