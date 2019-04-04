@@ -438,4 +438,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 12. Passive Income Future Freedom Income Dividend Direct Pay Yourself First Recurring Revenue Universality Subscription Basic
 
 1.  Leverage , Liquidity
-2. 
+2.  Boathomes, Shipping Container Houses
+3.
+4.
+5.
