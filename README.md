@@ -434,4 +434,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 8.  FISH Freedom Income Subscription Hackathon
 9.  Koine 
 10. How to create viral websites?  Daily wisdom 
-11.
+11. Purr Bird Furs
+12. Passive Income Future Freedom Income Dividend Direct Pay Yourself First Recurring Revenue Universality Subscription Basic
