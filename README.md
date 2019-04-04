@@ -436,3 +436,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 10. How to create viral websites?  Daily wisdom 
 11. Purr Bird Furs
 12. Passive Income Future Freedom Income Dividend Direct Pay Yourself First Recurring Revenue Universality Subscription Basic
+
+1.  Leverage , Liquidity
+2. 
