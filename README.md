@@ -442,4 +442,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 3.  Ubiquity
 4.  Question -> Action
 5.  How to utilize + implement + execute knowledge ?  tsundoku application
-6.  CryptoGrocery.  CryptoGross
+6.  CryptoGrocery.store  CryptoGross
+7.  BlockGrocery.store -> Crypto Farmer's Market
