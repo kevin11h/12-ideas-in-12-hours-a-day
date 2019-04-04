@@ -446,3 +446,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 7.  BlockGrocery.store -> Crypto Farmer's Market
 8.  Publish { Product , Application, Book } IP (Information Products, Intellectual Property, Inspirational Publications)
 9.  Quexercize = Questions + Exercize = Curiosity + Energy
+10.  Amenity
+11. Synergy
+12. Synchronicity
