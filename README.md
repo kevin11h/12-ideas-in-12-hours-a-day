@@ -425,3 +425,13 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 
 1.  Grocery Investing, No Perfume / Consumer Cosmetics
 2.  How to build Viral websites + views + subscribers?  + share -> Daily Micro News Letter
+3.  Anoint Annotate
+3.  Observation, Awareness
+4.  Meditative Mode of Inquiry
+5.  Coinquiry
+6.  Coingenuity Coingenius
+7.  SHIP Subscribe Hackathon Ingenius Productions
+8.  FISH Freedom Income Subscription Hackathon
+9.  Koine 
+10. How to create viral websites?  Daily wisdom 
+11.
