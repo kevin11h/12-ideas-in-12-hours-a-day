@@ -440,5 +440,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 1.  Leverage , Liquidity
 2.  Boathomes, Shipping Container Houses
 3.  Ubiquity
-4.
+4.  Question -> Action
 5.
