@@ -455,3 +455,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 3.  Deliverables.  Recievables.  Scripts, Data Sets, Meeting Notes, Question/Web Resources, Accounts + Password Access, Snacks / Small Food, Supplies
 4.  Communicate Community = Commerce Customer Market
 5.  Wine + Music (live) + Book Salon Store + Furniture + Fireplace + Upstairs Hotel / Accomodations
+6.  Hospitality Health Supplements High Profit Margin Products Backpacks
