@@ -445,3 +445,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 6.  CryptoGrocery.store  CryptoGross
 7.  BlockGrocery.store -> Crypto Farmer's Market
 8.  Publish { Product , Application, Book } IP (Information Products, Intellectual Property, Inspirational Publications)
+9.  Quexercize = Questions + Exercize = Curiosity + Energy
