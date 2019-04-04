@@ -441,4 +441,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 2.  Boathomes, Shipping Container Houses
 3.  Ubiquity
 4.  Question -> Action
-5.
+5.  How to utilize + implement + execute knowledge ?  tsundoku application
