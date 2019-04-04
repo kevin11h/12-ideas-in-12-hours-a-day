@@ -424,3 +424,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 12.  Daily Wisdom
 
 1.  Grocery Investing, No Perfume / Consumer Cosmetics
+2.  How to build Viral websites + views + subscribers?  + share
