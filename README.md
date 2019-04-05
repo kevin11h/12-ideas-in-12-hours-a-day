@@ -458,3 +458,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 6.  Hospitality Health Supplements High Profit Margin Products Backpacks
 7.  Financial Inclusion Exchange
 8.  Yardlord
+9.  Crowdfunding Tiny Homes Site -> Equity Crowdfunding / Wefunder
