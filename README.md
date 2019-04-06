@@ -465,6 +465,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 
 1. Language.  Lingua
 2. Tiny Home HighTech House Community Crowdfunding Website
-3.
-4.
-5.
+3. How to build Viral Profitable Popular Producibility Websites?
+4. How to be a better learner, autodidact, polymath, student
+5. 10,000 Questions per day exams
+6. 
