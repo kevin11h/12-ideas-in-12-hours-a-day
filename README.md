@@ -466,7 +466,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 1. Language.  Lingua
 2. Tiny Home HighTech House Community Crowdfunding Website
 3. How to build Viral Profitable Popular Producibility Websites?
-4. How to be a better learner, autodidact, polymath, student
+4. How to be a better learner, autodidact, polymath, student?
 5. 10,000 Questions per day exams
 6. How to build + create + sustain solar cryptocurrency mining system + co-integrate with smart home?
 7. How to start + sustain a hedge fund?
@@ -474,3 +474,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 9. How to access high finance funds?
 10.  How to build + sustain momentum?
 11.  Be -> Being -> Becoming -> Believe -> Belong -> Beyond
+12. How to ask better more important greater helpful, actionable questions?
