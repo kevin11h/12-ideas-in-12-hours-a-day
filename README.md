@@ -471,3 +471,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 6. How to build + create + sustain solar cryptocurrency mining system + co-integrate with smart home?
 7. How to start + sustain a hedge fund?
 8. Scholarship fund?
+9. How to access high finance funds?
+10.  How to build + sustain momentum?
+11.  Be -> Being -> Becoming -> Believe -> Belong -> Beyond
