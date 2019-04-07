@@ -469,3 +469,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 4. How to be a better learner, autodidact, polymath, student
 5. 10,000 Questions per day exams
 6. How to build + create + sustain solar cryptocurrency mining system + co-integrate with smart home?
+7. How to start + sustain a hedge fund?
+8. Scholarship fund?
