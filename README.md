@@ -490,4 +490,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 12. Heal + Hear + Heart
 
 1.  Desiderata
-2.
+2.  How to ask better, constructive, critical questions?
+3.  How to be better at reading + learning + applying + actionating + doing?
+4.  How to (un)entangle mysteries + puzzles + riddles?
+5.  How to become + beyond autodidactic + polymathic ?
