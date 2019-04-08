@@ -486,5 +486,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 8.  How to help others ?
 9.  How to be valuable ?
 10. How to create awesome + useful + profitable + productive apps ?
-11. 
-12.
+11. How to listen to light of reason and heart
+12. Heal + Hear + Heart
+
+1.
