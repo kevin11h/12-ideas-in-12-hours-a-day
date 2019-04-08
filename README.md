@@ -489,5 +489,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 11. How to listen to light of reason and heart
 12. Heal + Hear + Heart
 
-1.  Desiradata
+1.  Desiderata
 2.
