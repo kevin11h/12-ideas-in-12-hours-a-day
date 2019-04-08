@@ -485,6 +485,6 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 7.  How to silence the enemy and quiet the doubting voice ?
 8.  How to help others ?
 9.  How to be valuable ?
-10. 
+10. How to create awesome + useful + profitable + productive apps ?
 11. 
 12.
