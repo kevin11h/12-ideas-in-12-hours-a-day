@@ -475,3 +475,16 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 10.  How to build + sustain momentum?
 11.  Be -> Being -> Becoming -> Believe -> Belong -> Beyond
 12. How to ask better more important greater helpful, actionable questions?
+
+1.  How to be less distracted but daydream?
+2.  How to be a garden of mind?
+3.  How to focus on what's important?
+4.  How to act upright, sit upright, be of good (under)standing + posture ?
+5.  How to sustain attention and act presently?
+6.  How to dream + think + plan ahead + pivot ?
+7.  How to silence the enemy and quiet the doubting voice ?
+8.  How to help others ?
+9.  How to be valuable ?
+10. 
+11. 
+12.
