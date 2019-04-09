@@ -513,7 +513,7 @@ App + Websites + Viral Blogs
 
 Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 
-8.  Question of the day?  Daily Verse Spinoff / Clone.  Quest/ Puzzle Mystery
+8.  Question of the day?  Daily Verse Spinoff / Clone.  Quest/ Puzzle Mystery -> Quora Integration
 9.  New Daily Song Recommender
 10. AMWF of the day
 11. 
