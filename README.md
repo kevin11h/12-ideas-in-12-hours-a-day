@@ -506,4 +506,5 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 2.  How do I remain un-anxious?  Be at ease
 3.  When can I invest time effectively?
 4.  How do I prioritize + execute tasks?
-5.
+5.  What are my priorities?
+6.  How do I maintain + sustain attention + focus + discipline?
