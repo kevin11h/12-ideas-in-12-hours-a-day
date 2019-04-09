@@ -494,3 +494,4 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 3.  How to be better at reading + learning + applying + actionating + doing?
 4.  How to (un)entangle mysteries + puzzles + riddles?
 5.  How to become + beyond autodidactic + polymathic ?
+6.  QSR Technique Question Story(book) Re{ sponse, flextion, new, peat}
