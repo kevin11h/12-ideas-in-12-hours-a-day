@@ -495,3 +495,15 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 4.  How to (un)entangle mysteries + puzzles + riddles?
 5.  How to become + beyond autodidactic + polymathic ?
 6.  QSR Technique Question Story(book) Re{ sponse, flextion, new, peat}
+7.  How do I forget about distractions / small potatoes?
+8.  How do I learn + apply answers to all my questions?
+9.  How can I inspire others to be + do well ?
+10. Where is our current position upon the mountaintop?
+11. What are good koans for meditation + concentration?
+12. Where is the soul source of the seeker?  Seeker's stone
+
+1.  Why am I not so sure?
+2.  How do I remain un-anxious?  Be at ease
+3.  When can I invest time effectively?
+4.  How do I prioritize + execute tasks?
+5.
