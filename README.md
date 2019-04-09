@@ -511,6 +511,9 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 7.  Adage.  aphora.  Psychological health + calendar + reminder
 App + Websites + Viral Blogs
 
-Literature + Wisdom + Book Recommendations
+Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 
-8. 
+8.  Question of the day?  Daily Verse Spinoff / Clone.  Quest/ Puzzle Mystery
+9.  New Daily Song Recommender
+10. AMWF of the day
+11. 
