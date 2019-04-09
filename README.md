@@ -518,3 +518,7 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 10. AMWF of the day
 11. Good Habit Network
 12. Good Habits
+
+1. Examples
+2. Exercises
+3. Eventbrite + Facebook Events + Free + Friends + Free Food
