@@ -510,3 +510,7 @@ https://en.wikipedia.org/wiki/Parables_of_Jesus
 6.  How do I maintain + sustain attention + focus + discipline?
 7.  Adage.  aphora.  Psychological health + calendar + reminder
 App + Websites + Viral Blogs
+
+Literature + Wisdom + Book Recommendations
+
+8. 
