@@ -528,3 +528,4 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 7. Finity.  Coinfinity
 8. Travelocity
 9.  Cosplayer Magazine
+10.  Failsafe
