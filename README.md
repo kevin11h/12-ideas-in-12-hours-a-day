@@ -534,3 +534,4 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 
 1.  Be Aware
 2.  Clever, Crafty, Cunning
+3.  Focusing = Removing + Deleting Distractions + less worry + less anxiety + less stuff + less things + no more = enough peace presence
