@@ -525,4 +525,5 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 4. How to review effectively?  How to optimize for maximum impact?  How to return attention to what is important?
 5. How to ask bigger questions?  How to dream bigger?
 6. Expotentiality = Exponential + Potentiality
-7. 
+7. Finity.  Coinfinity
+8. Travelocity
