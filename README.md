@@ -527,3 +527,4 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 6. Expotentiality = Exponential + Potentiality
 7. Finity.  Coinfinity
 8. Travelocity
+9.  Cosplayer Magazine
