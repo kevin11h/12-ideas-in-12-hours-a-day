@@ -530,4 +530,4 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 9.  Cosplayer Magazine
 10.  Failsafe
 11. Veracity
-12.
+12. How do I recover?
