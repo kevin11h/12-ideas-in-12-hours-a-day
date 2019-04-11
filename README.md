@@ -524,4 +524,5 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 3. Eventbrite + Facebook Events + Free + Friends + Free Food
 4. How to review effectively?  How to optimize for maximum impact?  How to return attention to what is important?
 5. How to ask bigger questions?  How to dream bigger?
-6.
+6. Expotentiality = Exponential + Potentiality
+7. 
