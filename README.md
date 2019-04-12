@@ -545,5 +545,5 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 11.  How do I waste less time on social media? #time #management
 12.  Amnesty
 
-1.  Don't (Deny), Deliberate, Delete, Defer, Delay, Delegate, Determine
+1.  Don't (Deny), Deliberate, Delete, Defer, Delay, Delegate, Determine, Devise
 2. 
