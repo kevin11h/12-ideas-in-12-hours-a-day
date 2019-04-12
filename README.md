@@ -544,3 +544,6 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 10. How to stop getting angry so much -- distracted
 11.  How do I waste less time on social media? #time #management
 12.  Amnesty
+
+1.  Don't (Deny), Deliberate, Delete, Defer, Delay, Delegate, Determine
+2. 
