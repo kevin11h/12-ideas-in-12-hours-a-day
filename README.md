@@ -554,3 +554,4 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 7.  Catalog
 8.  Catalyst
 9.  Autodidacticism, Self Learning, Polymath-ist, Homeschooling
+10.  Curiosity - Driven.  Keep learning.  Ask questions constantly
