@@ -546,4 +546,5 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 12.  Amnesty
 
 1.  Don't (Deny), Deliberate, Delete, Defer, Delay, Delegate, Determine, Devise
-2. 
+2.  Positive Habits
+3.  Notes.  Noteworthy.  Art of Notetaking?
