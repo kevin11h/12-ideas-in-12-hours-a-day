@@ -539,4 +539,8 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 5.  Astral
 6.  Myrrh.  Fish.  Ship.  Ubiquity = omni presence
 7.  How do hackathons and conferences make money ?
-8.
+8.  How to write a coincubinage cointract? > marriage
+9.  How to draw + paint + create AMWF logo?
+10.
+11.
+12
