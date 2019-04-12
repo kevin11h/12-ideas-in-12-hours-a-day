@@ -550,3 +550,4 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 3.  Notes.  Noteworthy.  Art of Notetaking?
 4.  Request. Persistence.  Re-quest, re-start, re-ask
 5.  Symb(i)ology
+6.  Fail to Scale.  Fail to Sale F->S FTS
