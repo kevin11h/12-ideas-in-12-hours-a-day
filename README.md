@@ -545,7 +545,7 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 11.  How do I waste less time on social media? #time #management
 12.  Amnesty
 
-1.  Don't (Deny), Define,  Deliberate, Delete, Delay, Delegate, Defer, Determine, Devise
+1.  Don't (Deny), Define,  Deliberate, Delete, Delay, Delegate, Defer, Determine, Devise, Deliver
 2.  Positive Habits
 3.  Notes.  Noteworthy.  Art of Notetaking?
 4.  Request. Persistence.  Re-quest, re-start, re-ask
@@ -574,4 +574,5 @@ Legal Business Incorporation Arbitrage.  Travel and save
 
 1.  Humility.  Act humble
 2.  Humble Bundle
-3.  One Stop Shop Magazine Publish.  Uber for Magazine Subscriptions
+3.  One Stop Shop Magazine Publish.  Uber for Magazine Subscriptions.  Instant Demand -> Immediate Subscription -> Deliver / Distributionship
+4.  Coinvite
