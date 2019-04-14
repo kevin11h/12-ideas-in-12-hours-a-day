@@ -559,4 +559,5 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 Legal Business Incorporation Arbitrage.  Travel and save
 12.  Coincubinage Alternative Marriage cointracts
 
-1.  Crypto Economic Security Language as Currency Book
+1.  Crypto Currency Economic Security Blockchain Language as Currency Book
+2.  How to become a productive indie hacker?
