@@ -545,7 +545,7 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 11.  How do I waste less time on social media? #time #management
 12.  Amnesty
 
-1.  Don't (Deny), Deliberate, Delete, Defer, Delay, Delegate, Determine, Devise
+1.  Don't (Deny), Deliberate, Delete, Delay, Delegate, Defer, Determine, Devise
 2.  Positive Habits
 3.  Notes.  Noteworthy.  Art of Notetaking?
 4.  Request. Persistence.  Re-quest, re-start, re-ask
@@ -557,4 +557,6 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 10.  Curiosity - Driven.  Keep learning.  Ask questions constantly
 11.  Coincorporate Coincubator Work spaces Coincubation Accelerators Cointernational Family Offices
 Legal Business Incorporation Arbitrage.  Travel and save
-12.  
+12.  Coincubinage Alternative Marriage cointracts
+
+1.  Crypto Economic Security Language as Currency Book
