@@ -571,3 +571,7 @@ Legal Business Incorporation Arbitrage.  Travel and save
 10.  Immorality / Immortality, Morality / Mortality
 11. Green cities / Green communities Real Estate Magazine (alternative living)
 12.  Mission + Mantra + Meaning 3 Ms M's
+
+1.  Humility.  Act humble
+2.  Humble Bundle
+3.  One Stop Shop Magazine Publish.  Uber for Magazine Subscriptions
