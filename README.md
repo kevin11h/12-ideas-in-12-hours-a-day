@@ -545,7 +545,7 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 11.  How do I waste less time on social media? #time #management
 12.  Amnesty
 
-1.  Don't (Deny), Deliberate, Delete, Delay, Delegate, Defer, Determine, Devise
+1.  Don't (Deny), Define,  Deliberate, Delete, Delay, Delegate, Defer, Determine, Devise
 2.  Positive Habits
 3.  Notes.  Noteworthy.  Art of Notetaking?
 4.  Request. Persistence.  Re-quest, re-start, re-ask
@@ -561,3 +561,13 @@ Legal Business Incorporation Arbitrage.  Travel and save
 
 1.  Crypto Currency Economic Security Blockchain Language as Currency Book
 2.  How to become a productive indie hacker?
+3.  Smart Home Magazine (real estate)
+4.  Smart City Magazine
+5.  Smart City Travel Guide / Magazine
+6.  Future Cities Business Travel Rating / Ranking
+7.  Future Tech Smart Cities Advanced Societies Critics Review
+8.  Preview Review
+9.  Repent, Regret, Remorse, Reconsider, Reconcile, Revise, Revision Rejoice, Restart, Relive
+10.  Immorality / Immortality, Morality / Mortality
+11. Green cities / Green communities Real Estate Magazine (alternative living)
+12.  Mission + Mantra + Meaning 3 Ms M's
