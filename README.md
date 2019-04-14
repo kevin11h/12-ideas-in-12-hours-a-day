@@ -555,3 +555,6 @@ Literature + Poetry + Philosophy + Music + Wisdom + Book Recommendations
 8.  Catalyst
 9.  Autodidacticism, Self Learning, Polymath-ist, Homeschooling
 10.  Curiosity - Driven.  Keep learning.  Ask questions constantly
+11.  Coincorporate Coincubator Work spaces Coincubation Accelerators Cointernational Family Offices
+Legal Business Incorporation Arbitrage.  Travel and save
+12.  
