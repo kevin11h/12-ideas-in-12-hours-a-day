@@ -567,7 +567,7 @@ Legal Business Incorporation Arbitrage.  Travel and save
 6.  Future Cities Business Travel Rating / Ranking
 7.  Future Tech Smart Cities Advanced Societies Critics Review
 8.  Preview Review
-9.  Repent, Regret, Remorse, Reconsider, Reconcile, Revise, Revision Rejoice, Restart, Relive
+9.  Repent, Regret, Remorse, Reconsider, Reconcile, Revise / Revision, Reinvent, Receive, Relief (Belief/live), Rejoice, Restart, Renew, Reward
 10.  Immorality / Immortality, Morality / Mortality
 11. Green cities / Green communities Real Estate Magazine (alternative living)
 12.  Mission + Mantra + Meaning 3 Ms M's
