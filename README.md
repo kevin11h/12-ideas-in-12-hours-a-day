@@ -608,5 +608,5 @@ Legal Business Incorporation Arbitrage.  Travel and save
 8.  Backpack Tech Start Pack -> Shopify Drop shipping 
 9.  Shopify Dropship High Profit Margin Products.  Product profit
 10.  Dropship.  No Product / Factory Creation.  Just sale + distribution
-11.
-12.
+11.  Beginner's Mind.  Startup Mindset.  Childish Questions.  How to learn, How to ask, How to grow
+12.  Wisdom of Humility
