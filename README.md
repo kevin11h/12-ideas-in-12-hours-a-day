@@ -585,6 +585,6 @@ Legal Business Incorporation Arbitrage.  Travel and save
 11.  How to build + create + ship MVP that profits?
 12.  Scholarship, Financing, Funding, Investing, Sponsorship, AUM.  What is AUM?
 
-1.
-
+1. Epipremnum aureum
+2. Idea.list Emerald Tablet 
 
