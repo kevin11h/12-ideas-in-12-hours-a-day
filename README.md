@@ -589,4 +589,13 @@ Legal Business Incorporation Arbitrage.  Travel and save
 2. Idea.list Emerald Tablet 
 3.  Deny and Demand.  Don't waste your time
 4.  Magic of Simply Start
-5.  
+5.  Quora Questions + Amazon Books + Education
+6.  Facebook + Eventbrite = Free Friends Food Network
+7.  Experiments -> Experience.  Experiments lead to Experience
+8.  Berkeley, Stanford, 42 Free Education Resources + Lifelong learning
+9.  Ubiquity Provides Omni-Present Equity for everyone
+10. Amenity Provides Nonprofit Mission Colleges Church + Religion + Educational Experience + Spirituality.  Coinstitute
+11. Mantra - Meaning - Mission
+12.  Communication with Community = Customer Market Creation
+
+1.  Math as Currency.  Math as Language.  Language as Currency.  Communication as Currency
