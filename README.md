@@ -607,6 +607,6 @@ Legal Business Incorporation Arbitrage.  Travel and save
 7.  Quanta
 8.  Backpack Tech Start Pack -> Shopify Drop shipping 
 9.  Shopify Dropship High Profit Margin Products.  Product profit
-10.
+10.  Dropship.  No Product / Factory Creation.  Just sale + distribution
 11.
 12.
