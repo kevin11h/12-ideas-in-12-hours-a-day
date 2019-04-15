@@ -580,3 +580,7 @@ Legal Business Incorporation Arbitrage.  Travel and save
 6.  World Golf Tour Travel Business Executives Game + Travel + Tour.  Golf.work
 7.  Golf networking.  Executive Exercise Travel Fun Liesure Luxury.  Membership Fee Club 
 8.  Coinduction
+9.  How to optimize the weekends?
+10.  Where do I find a good COO?
+11.  How to build + create + ship MVP that profits?
+12.
