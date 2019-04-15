@@ -604,3 +604,9 @@ Legal Business Incorporation Arbitrage.  Travel and save
 4.  Note Taking, Diary, Noteworthy, Sketching
 5.  Journaling, Journalist, Journalism, Journey
 6.  Coinception.  Coinnection
+7.  Quanta
+8.  Backpack Tech Start Pack -> Shopify Drop shipping 
+9.  Shopify Dropship High Profit Margin Products.  Product profit
+10.
+11.
+12.
