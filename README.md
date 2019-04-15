@@ -583,4 +583,8 @@ Legal Business Incorporation Arbitrage.  Travel and save
 9.  How to optimize the weekends?
 10.  Where do I find a good COO?
 11.  How to build + create + ship MVP that profits?
-12.
+12.  Scholarship, Financing, Funding, Investing, Sponsorship, AUM.  What is AUM?
+
+1.
+
+
