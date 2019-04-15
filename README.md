@@ -610,3 +610,5 @@ Legal Business Incorporation Arbitrage.  Travel and save
 10.  Dropship.  No Product / Factory Creation.  Just sale + distribution
 11.  Beginner's Mind.  Startup Mindset.  Childish Questions.  How to learn, How to ask, How to grow
 12.  Wisdom of Humility
+
+1.  Proptech Magazine
