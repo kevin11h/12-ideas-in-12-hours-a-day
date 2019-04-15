@@ -577,3 +577,4 @@ Legal Business Incorporation Arbitrage.  Travel and save
 3.  One Stop Shop Magazine Publish.  Uber for Magazine Subscriptions.  Instant Demand -> Immediate Subscription -> Deliver / Distributionship
 4.  Coinvite
 5.  Uber for Homeschooling / Tutor
+6.  World Golf Tour Travel Business Executives Game + Travel + Tour.  Golf.work
