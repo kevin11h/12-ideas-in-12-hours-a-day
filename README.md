@@ -599,3 +599,8 @@ Legal Business Incorporation Arbitrage.  Travel and save
 12.  Communication with Community = Customer Market Creation
 
 1.  Math as Currency.  Math as Language.  Language as Currency.  Communication as Currency
+2.  Abstration , Simplification
+3.  Mind Mapping, Concept Connections
+4.  Note Taking, Diary, Noteworthy, Sketching
+5.  Journaling, Journalist, Journalism, Journey
+6.  Coinception.  Coinnection
