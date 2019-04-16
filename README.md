@@ -627,5 +627,12 @@ Legal Business Incorporation Arbitrage.  Travel and save
 1.   Who should you or we or I be?  Be -> Belief -> Becoming -> Belong -> Beyond -> *
 2.  Art of Notetaking.  Notes.  Notation.  Noteworthy.  Annotate
 3.  Receptivity.  Reflectivity.  Amiacability
-4.
-5.
+4.  How do I work with homelessness?
+5.  How do I build + create a dropshipping site?
+6.  How do I (re)invest time + energy + attention
+7.  Learn to Return Time #GiveBack
+8.  attention + information economy
+9.  How do I ship + deliver high impact + high useability features + benefits + advantages
+10. Applicability + Useability + Utility
+11. 
+12.
