@@ -625,7 +625,7 @@ Legal Business Incorporation Arbitrage.  Travel and save
 12.  Shiny shoes lifesaving
 
 1.   Who should you or we or I be?  Be -> Belief -> Becoming -> Belong -> Beyond -> *
-2.
-3.
+2.  Art of Notetaking.  Notes.  Notation.  Noteworthy.  Annotate
+3.  Receptivity.  Reflectivity.  Amiacability
 4.
 5.
