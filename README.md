@@ -612,3 +612,20 @@ Legal Business Incorporation Arbitrage.  Travel and save
 12.  Wisdom of Humility
 
 1.  Proptech Magazine
+2.  How do I return + revisit + reask pertinent + respond to persistent questions? #requestion #re-dis-covery
+3.  How do I act on the implied answers?
+4.  How do you or I or we respond to honest requestions?
+5.  How do I not give up? How do I continue?
+6.  How do I forgive?  How do I keep moving?  How can I be still?
+7.  How to follow through on commitments?  How to interrupt unhelpful patterns?
+8.  How to start earlier?  How to start sooner?  How to start right + better ?
+9.  How do I be productive?  How can I improve>?  How can I be humble?
+10.  How can I or you or we help my or our friends?
+11.  How to mistake move on and continue?
+12.  Shiny shoes lifesaving
+
+1.  
+2.
+3.
+4.
+5.
