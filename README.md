@@ -624,7 +624,7 @@ Legal Business Incorporation Arbitrage.  Travel and save
 11.  How to mistake move on and continue?
 12.  Shiny shoes lifesaving
 
-1.  
+1.   Who should you or we or I be?  Be -> Belief -> Becoming -> Belong -> Beyond -> *
 2.
 3.
 4.
