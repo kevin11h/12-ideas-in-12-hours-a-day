@@ -637,8 +637,14 @@ Legal Business Incorporation Arbitrage.  Travel and save
 11. Cointruiging.  Cointrigue
 12. World University Education Tour.  International School / Education Rankings + Ratings Subscription Magazine
 
-1.  ReChristian = Remember -> Remorse -> Regret -> Repent -> Release -> Reconcile -> Redeemed -> Renew -> Rejoice -> Receive -> Reward -> Relive
+1.  ReChristian = Remember -> Read -> Reality Check -> Remorse -> Regret -> Repent -> Release -> Reconcile -> Reconcieve -> Redemption -> Renew -> Rejoice -> Receive -> Reward -> Relive -> Revelations
 2.  Crypto Cadet Dropshipping Gear
 3.  Pseudocity
 4.  Jesus Jobs Book.  Jobs of Jesus
 5.  Refresh Renew Redo
+6.  Cointention
+7.  Coinfidelity
+8.  Pseudacity
+9.  
+10.
+11.
