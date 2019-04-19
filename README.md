@@ -655,5 +655,10 @@ Legal Business Incorporation Arbitrage.  Travel and save
 3.  Psudacity
 4.  Vitality
 5.  Authorship
-6.  
-7.
+6.  Flowing -> Knowing
+7.  Noteworthy.  Notes , financial, musical, developmental
+8.  Notes, Reality Checks
+9.  Emergency Funds on Blockchain
+10.
+11.
+12.
