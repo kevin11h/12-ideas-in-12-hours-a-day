@@ -662,3 +662,5 @@ Legal Business Incorporation Arbitrage.  Travel and save
 10.  Mantra & Meaning & Mission + Measure & Manage
 11.  ReChristian = Remember -> Read -> Reality Check -> Remorse -> Regret -> Repent -> Reconcieve -> Release -> Reconcile -> Restore -> Redemption -> Renew -> Rejoice -> Receive -> Reward -> Relive -> Revelations
 12.  Cryptocratic Oath
+
+1.  Sagacity
