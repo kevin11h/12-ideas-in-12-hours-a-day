@@ -660,5 +660,5 @@ Legal Business Incorporation Arbitrage.  Travel and save
 8.  Notes, Reality Checks
 9.  Emergency Funds on Blockchain
 10.  Mantra & Meaning & Mission + Measure & Manage
-11.
+11.  ReChristian = Remember -> Read -> Reality Check -> Remorse -> Regret -> Repent -> Reconcieve -> Release -> Reconcile -> Restore -> Redemption -> Renew -> Rejoice -> Receive -> Reward -> Relive -> Revelations
 12.
