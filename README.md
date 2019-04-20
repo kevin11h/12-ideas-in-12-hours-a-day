@@ -664,3 +664,9 @@ Legal Business Incorporation Arbitrage.  Travel and save
 12.  Cryptocratic Oath
 
 1.  Sagacity
+2.  Coinvite
+3.  AMWF 
+4.  Hybrid Hedgefund
+5.  Lexicon
+6.  World University Tour
+7.
