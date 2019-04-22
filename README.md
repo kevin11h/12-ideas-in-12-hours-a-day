@@ -713,5 +713,5 @@ F3 -- our three Fs stand for Fitness, Fellowship and Faith
 8.  https://www.atrium.co/blog/author/justinkan/
 9.  https://www.atrium.co/blog/announcing-atrium-academy/
 10. https://www.atrium.co/blog/seed-stage-funding-startups/
-11. 
+11. reduction 
 12. https://help.wefunder.com/guides
