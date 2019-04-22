@@ -708,3 +708,6 @@ F3 -- our three Fs stand for Fitness, Fellowship and Faith
 3.  Rest, Recovery, Reflection  
 4.  Quick Trick
 5.  https://community.khoros.com/t5/Science-of-Social-Blog/The-90-9-1-Rule-in-Reality/ba-p/5463
+6.  Free.store
+7.  Used.store
+8.
