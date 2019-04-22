@@ -715,3 +715,5 @@ F3 -- our three Fs stand for Fitness, Fellowship and Faith
 10. https://www.atrium.co/blog/seed-stage-funding-startups/
 11. reduction 
 12. https://help.wefunder.com/guides
+
+1.  Financial Engineering -> Patents + Protection + IP + Coinstruments + Blockchain -> $1 mm + startup
