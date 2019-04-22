@@ -696,7 +696,7 @@ F3 -- our three Fs stand for Fitness, Fellowship and Faith
 4.  Gold sun, Green leaf
 5.  https://cointelegraph.com/news/proof-of-keys-event-aims-to-challenge-perceived-centralization-of-cryptocurrencies
 6.  Recognize
-7.  Remember, Recognize, Repent, Regret, Remorse, Reconsider, Reconcile, Revise / Revision, Reinvent, Receive, Relief (Belief/live), Rejoice, Restart, Renew, Reward, Relive, Revelations
+7.  Remember, Recognize, Recover, Repent, Regret, Remorse, Reflect, Reconsider, Reconcile, Revise / Revision, Reinvent, Receive, Relief (Belief/live), Rejoice, Restart, Renew, Reward, Relive, Revelations, Rest
 8.  Christian Rose is not John of Patmos
 9.  People centered Hackathon
 10. What are good hacakthons?  What are good events?
@@ -705,4 +705,5 @@ F3 -- our three Fs stand for Fitness, Fellowship and Faith
 
 1.  How do you maintain + sustain + keep the key of faith?
 2.  How to not give up nor forget your dreams?
-3.  
+3.  Rest, Recovery, Reflection  
+4.
