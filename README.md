@@ -711,3 +711,4 @@ F3 -- our three Fs stand for Fitness, Fellowship and Faith
 6.  Free.store
 7.  Used.store
 8.  https://www.atrium.co/blog/author/justinkan/
+9.  https://www.atrium.co/blog/announcing-atrium-academy/
