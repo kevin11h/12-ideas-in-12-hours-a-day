@@ -691,3 +691,11 @@ F3 -- our three Fs stand for Fitness, Fellowship and Faith
 12. How to create a successful Earthquake repair campaign?
 
 1.  Coinvergence
+2.  Gift of Tongues
+3.  Dark Sun, Blood Moon
+4.  Gold sun, Green leaf
+5.  https://cointelegraph.com/news/proof-of-keys-event-aims-to-challenge-perceived-centralization-of-cryptocurrencies
+6.  Recognize
+7.  Remember, Recognize, Repent, Regret, Remorse, Reconsider, Reconcile, Revise / Revision, Reinvent, Receive, Relief (Belief/live), Rejoice, Restart, Renew, Reward, Relive, Revelations
+8.  Christian Rose is not John of Patmos
+9.
