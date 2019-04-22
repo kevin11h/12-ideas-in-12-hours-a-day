@@ -706,4 +706,4 @@ F3 -- our three Fs stand for Fitness, Fellowship and Faith
 1.  How do you maintain + sustain + keep the key of faith?
 2.  How to not give up nor forget your dreams?
 3.  Rest, Recovery, Reflection  
-4.
+4.  Quick Trick
