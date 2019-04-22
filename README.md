@@ -698,4 +698,11 @@ F3 -- our three Fs stand for Fitness, Fellowship and Faith
 6.  Recognize
 7.  Remember, Recognize, Repent, Regret, Remorse, Reconsider, Reconcile, Revise / Revision, Reinvent, Receive, Relief (Belief/live), Rejoice, Restart, Renew, Reward, Relive, Revelations
 8.  Christian Rose is not John of Patmos
-9.
+9.  People centered Hackathon
+10. What are good hacakthons?  What are good events?
+11. How do you relax?
+12. How do you rejoice?  How do you enjoy?
+
+1.  How do you maintain + sustain + keep the key of faith?
+2.  How to not give up nor forget your dreams?
+3.  
