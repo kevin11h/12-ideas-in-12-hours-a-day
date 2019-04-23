@@ -730,4 +730,4 @@ Healthy + Easy + Fast
 11.  How do I join meaningful events?
 12.  What am I seeking?
 
-1.
+1.  https://carta.com/blog/how-to-manage-a-new-or-emerging-venture-fund/?utm_medium=paid-social&utm_source=quora
