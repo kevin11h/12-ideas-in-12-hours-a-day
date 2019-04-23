@@ -734,4 +734,4 @@ Healthy + Easy + Fast
 2.  Campaign Fundraiser with Crypto
 3.  Refuge
 4.  Time Card = Money + Time
-5.  
+5.  Accountability.  Responsibility.  Discipline
