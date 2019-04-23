@@ -734,4 +734,5 @@ Healthy + Easy + Fast
 2.  Campaign Fundraiser with Crypto
 3.  Refuge
 4.  Time Card = Money + Time
-5.  Accountability.  Responsibility.  Discipline
+5.  Accountability.  Responsibility.  Discipline.  Crypto Cadet Catechism 
+6.  http://www.veradiverdict.com/issues/veradiverdict-what-s-the-secret-to-deal-flow-issue-34-173601
