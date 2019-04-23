@@ -733,3 +733,5 @@ Healthy + Easy + Fast
 1.  https://carta.com/blog/how-to-manage-a-new-or-emerging-venture-fund/?utm_medium=paid-social&utm_source=quora
 2.  Campaign Fundraiser with Crypto
 3.  Refuge
+4.  Time Card = Money + Time
+5.  
