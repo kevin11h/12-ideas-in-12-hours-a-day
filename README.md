@@ -718,3 +718,4 @@ F3 -- our three Fs stand for Fitness, Fellowship and Faith
 
 1.  Financial Engineering -> Patents + Protection + IP + Coinstruments + Blockchain -> $1 mm + startup
 2.  https://cointelegraph.com/news/early-spotify-investor-contributes-to-blockchain-art-registry-in-7-mln-funding-round
+3.  $fem $wom
