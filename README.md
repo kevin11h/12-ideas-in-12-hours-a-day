@@ -737,3 +737,4 @@ Healthy + Easy + Fast
 5.  Accountability.  Responsibility.  Discipline.  Crypto Cadet Catechism 
 6.  http://www.veradiverdict.com/issues/veradiverdict-what-s-the-secret-to-deal-flow-issue-34-173601
 7.  People Place Product
+8.  Shipify
