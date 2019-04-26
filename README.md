@@ -741,3 +741,4 @@ Healthy + Easy + Fast
 9.  Goldleaf Capital
 10. Goldleaf Ventures
 11. Stanford Game Club
+12.  https://cointelegraph.com/news/chinese-government-supports-development-of-blockchain-city-in-malaysia
