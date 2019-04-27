@@ -746,4 +746,12 @@ Healthy + Easy + Fast
 1.  Continue e-writing, question askingstorytelling  https://steemit.com/
 2.  https://steemit.com/
 3.  https://quora.com
-
+4.  What are the good parts of stanford?
+5.  Captivity "See to it that no one takes you captive through hollow and deceptive philosophy, which depends on human tradition and the elemental spiritual forces of this world rather than on Christ."  - Colossians 2:8
+6.  AMXF wordpress
+7.  dictionary wordpress
+8.  clothing on shopify
+9.  Coinvite = Crypto + eventbrite hybrid
+10.  What are good questions to ask?
+11.  How do I act well?
+12.
