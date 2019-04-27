@@ -742,3 +742,8 @@ Healthy + Easy + Fast
 10. Goldleaf Ventures
 11. Stanford Game Club
 12.  https://cointelegraph.com/news/chinese-government-supports-development-of-blockchain-city-in-malaysia
+
+1.  Continue e-writing, question askingstorytelling  https://steemit.com/
+2.  https://steemit.com/
+3.  https://quora.com
+
