@@ -758,7 +758,7 @@ Healthy + Easy + Fast
 
 1.  Accountability
 2.  Forget Folly, Focus on Faith
-3.  Head, Hand, Heart, Health
+3.  Head, Hand, Heart, Health = 4 Essential Elements
 4.  Planting + Planning
 5.  Seeding + Seeing
 6.  Crypto Cook book
@@ -770,3 +770,5 @@ Healthy + Easy + Fast
 12.  Create Value
 
 1.  Arboretum
+2.  Cap Table Contract on Blockchain
+3.  Twitter Cryptocurrency Hybrid
