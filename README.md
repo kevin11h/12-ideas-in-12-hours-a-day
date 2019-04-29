@@ -759,3 +759,5 @@ Healthy + Easy + Fast
 1.  Accountability
 2.  Forget Folly, Focus on Faith
 3.  Head, Hand, Heart, Health
+4.  Planting + Planning
+5.  Seeding + Seeing
