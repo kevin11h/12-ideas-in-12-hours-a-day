@@ -758,4 +758,4 @@ Healthy + Easy + Fast
 
 1.  Accountability
 2.  Forget Folly, Focus on Faith
-3. 
+3.  Head, Hand, Heart, Health
