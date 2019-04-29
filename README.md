@@ -776,3 +776,4 @@ Healthy + Easy + Fast
 5.  How do you create a blockchain exchange?
 6.  Restore
 7.  Resolve
+8.  https://cointelegraph.com/news/fundstrats-tom-lee-predicts-new-all-time-highs-for-crypto-by-2020
