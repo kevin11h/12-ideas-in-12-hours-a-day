@@ -754,4 +754,8 @@ Healthy + Easy + Fast
 9.  Coinvite = Crypto + eventbrite hybrid
 10.  What are good questions to ask?
 11.  How do I act well?
-12.
+12.  Count on Christ
+
+1.  Accountability
+2.  Forget Folly, Focus on Faith
+3. 
