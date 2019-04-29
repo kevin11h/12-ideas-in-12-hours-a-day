@@ -772,3 +772,7 @@ Healthy + Easy + Fast
 1.  Arboretum
 2.  Cap Table Contract on Blockchain
 3.  Twitter Cryptocurrency Hybrid
+4.  How do you create a crypto currency wallet?  hard / cold
+5.  How do you create a blockchain exchange?
+6.  Restore
+7.  Resolve
