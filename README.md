@@ -761,3 +761,4 @@ Healthy + Easy + Fast
 3.  Head, Hand, Heart, Health
 4.  Planting + Planning
 5.  Seeding + Seeing
+6.  Crypto Cook book
