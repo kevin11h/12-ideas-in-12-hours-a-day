@@ -777,3 +777,4 @@ Healthy + Easy + Fast
 6.  Restore
 7.  Resolve
 8.  https://cointelegraph.com/news/fundstrats-tom-lee-predicts-new-all-time-highs-for-crypto-by-2020
+9.  https://cointelegraph.com/news/fedex-executive-advocates-for-industry-blockchain-standards
