@@ -778,3 +778,9 @@ Healthy + Easy + Fast
 7.  Resolve
 8.  https://cointelegraph.com/news/fundstrats-tom-lee-predicts-new-all-time-highs-for-crypto-by-2020
 9.  https://cointelegraph.com/news/us-presidential-candidate-andrew-yang-calls-for-clear-crypto-regulations
+10. Mobility
+11. Versatility
+12. Dwell Unity
+
+1.  What are good questions to ask and answer?
+2.  
