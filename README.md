@@ -789,3 +789,4 @@ Healthy + Easy + Fast
 5.  Horology
 6.  https://books.google.com/books?id=_NCBCgAAQBAJ 
 7.  https://cointelegraph.com/news/research-crypto-mining-hardware-market-to-see-10-compound-annual-growth-by-2023
+8.  Colossians 3:2 New International Version (NIV) Set your minds on things above, not on earthly things.
