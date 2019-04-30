@@ -788,3 +788,4 @@ Healthy + Easy + Fast
 4.  Proverbs 4:23  Guard your heart
 5.  Horology
 6.  https://books.google.com/books?id=_NCBCgAAQBAJ 
+7.  https://cointelegraph.com/news/research-crypto-mining-hardware-market-to-see-10-compound-annual-growth-by-2023
