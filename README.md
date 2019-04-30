@@ -786,3 +786,4 @@ Healthy + Easy + Fast
 2.  Ephesians 4:23 Be renewed in the spirit of your minds
 3.  Romans 12:2  Do not conform to this world, but be transformed by the renewing of your mind
 4.  Proverbs 4:23  Guard your heart
+5.  Horology
