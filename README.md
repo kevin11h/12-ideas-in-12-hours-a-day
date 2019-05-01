@@ -795,3 +795,5 @@ Rich, Fame, Looks
 10.  Penny Power - Coin Battery https://en.wikipedia.org/wiki/Penny_battery
 11.  How to renew + refresh + restore yourself?
 12.  Sinnovation Sinovate Innovate Coinnovate
+
+1.  Pantry - Food Inventory
