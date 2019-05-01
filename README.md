@@ -792,5 +792,5 @@ Healthy + Easy + Fast
 8.  Colossians 3:2 New International Version (NIV) Set your minds on things above, not on earthly things.
 9.  Powerful, Popular, Pretty
 Rich, Fame, Looks
-10.
+10.  Penny Power - Coin Battery https://en.wikipedia.org/wiki/Penny_battery
 11.
