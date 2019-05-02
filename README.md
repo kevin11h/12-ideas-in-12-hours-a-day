@@ -798,4 +798,5 @@ Rich, Fame, Looks
 
 1.  Pantry - Food Inventory
 2.  Prestige, Product, Problem
-3.  spire 
+3.  spire , tower, spirit, inspire, aspire
+4.  Forget folly and falsehood.  Focus on faith
