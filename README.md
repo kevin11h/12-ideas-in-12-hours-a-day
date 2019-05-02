@@ -811,3 +811,4 @@ Rich, Fame, Looks
 
 1.  Entrepreneur Cities in Silicon Valley, Bay Area
 https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-concentration-map
+2.  Professor Guest Lecture
