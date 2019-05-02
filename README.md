@@ -800,3 +800,4 @@ Rich, Fame, Looks
 2.  Prestige, Product, Problem
 3.  spire , tower, spirit, inspire, aspire
 4.  Forget folly and falsehood.  Focus on faith
+5.  Myth Don't be a Taker, be a Maker
