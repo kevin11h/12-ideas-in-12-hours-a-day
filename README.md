@@ -805,3 +805,6 @@ Rich, Fame, Looks
 7.  Moonlight
 8.  Starstone
 9.  Moonstone
+10.  Copywriter
+11. Quintessence 
+12.  Highlight Extension Tool
