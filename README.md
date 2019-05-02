@@ -801,3 +801,7 @@ Rich, Fame, Looks
 3.  spire , tower, spirit, inspire, aspire
 4.  Forget folly and falsehood.  Focus on faith
 5.  Myth Don't be a Taker, be a Maker
+6.  Starlight
+7.  Moonlight
+8.  Starstone
+9.  Moonstone
