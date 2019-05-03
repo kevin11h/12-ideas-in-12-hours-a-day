@@ -831,3 +831,4 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 3.  Innovation.  Invention
 4.  Coinvestor Coinvest Coinnovate Coinnovation Ventures
 5.  Coinvention
+6.  Minopoly
