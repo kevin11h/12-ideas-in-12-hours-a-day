@@ -816,3 +816,4 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 4.  Concentrate on the Cross - Crosscentrate - Consecrate
 5.  Forget Fake Forgo Folly Falsehood - Focus on Faith
 6.  Serve and Succeed.  Successful service
+7.  We Well We'll
