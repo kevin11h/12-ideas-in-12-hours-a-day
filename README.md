@@ -817,4 +817,5 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 5.  Forget Fake Forgo Folly Falsehood - Focus on Faith
 6.  Serve and Succeed.  Successful service
 7.  We Well We'll
-8.  We Well We'll Wealth Health
+8.  We Well We'll Wealth Health - Heart, Hear Here
+9.  Place, Plan and Purpose https://www.bible.com/reading-plans/14480-book-of-james-francis-chan-12-day-video-study
