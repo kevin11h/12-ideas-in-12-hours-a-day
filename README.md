@@ -812,3 +812,7 @@ Rich, Fame, Looks
 1.  Entrepreneur Cities in Silicon Valley, Bay Area
 https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-concentration-map
 2.  Professor Guest Lecture
+3.  Count on Christ.
+4.  Concentrate on the Cross - Crosscentrate - Consecrate
+5.  Forget Fake Forgo Folly Falsehood - Focus on Faith
+6.  
