@@ -820,3 +820,4 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 8.  We Well We'll Wealth Health - Heart, Hear Here
 9.  Place, Plan and Purpose https://www.bible.com/reading-plans/14480-book-of-james-francis-chan-12-day-video-study
 10. Preparity.  Pre Party.  Place, plan, party
+11.  Previsionary
