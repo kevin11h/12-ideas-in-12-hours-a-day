@@ -782,6 +782,9 @@ Healthy + Easy + Fast
 11. Versatility
 12. Dwell Unity
 
+1.  Startup Sustainability
+2.  Start & Sustain
+
 1.  What are good questions to ask and answer?
 2.  Ephesians 4:23 Be renewed in the spirit of your minds
 3.  Romans 12:2  Do not conform to this world, but be transformed by the renewing of your mind
