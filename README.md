@@ -821,3 +821,10 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 9.  Place, Plan and Purpose https://www.bible.com/reading-plans/14480-book-of-james-francis-chan-12-day-video-study
 10. Preparity.  Pre Party.  Place, plan, party
 11.  Previsionary
+12.  Credit for Investing
+
+1.  Investor's Credit
+2.  Patient.io PatentChain
+3.  Innovation.  Invention
+4.  Coinvestor Coinvest Coinnovate Coinnovation Ventures
+5.  Coinvention
