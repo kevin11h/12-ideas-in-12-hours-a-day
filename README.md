@@ -832,3 +832,5 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 4.  Coinvestor Coinvest Coinnovate Coinnovation Ventures
 5.  Coinvention
 6.  Minopoly
+7.  Progeny
+8.  Seminary Scholarships
