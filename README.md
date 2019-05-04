@@ -912,7 +912,7 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 6.  Set a schedule
 7.  Set a starter
 8.  Happy Habits
-9.  Morning Meditation Mind Muscle Memory
+9.  Morning Meditation Mind Muscle Memory Magic 
 10. How many hours? 
 11.  $1,000 - $X,000 Per month, 5 - 10 Hours Per Week
 12.  C4  Cool Cafe Color Comics Coffee Cafe CO3
@@ -921,3 +921,5 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 2.  Haha Happy Hardwork Habit  Ha3
 3.  Solution  Set a Schedule Set a Date Set Structure.  
 4.  Prepare environment = win  Victory
+5.  Pineal gland gateway
+6.  
