@@ -914,5 +914,5 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 8.  Happy Habits
 9.  Morning Meditation Mind Muscle Memory
 10. How many hours? 
-11.
+11.  $1,000 - $X,000 Per month, 5 - 10 Hours Per Week
 12.
