@@ -884,3 +884,9 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 4.  Life Mysteries
 5.  World Wonders
 6.  Curiosity
+7.  Entrepreneur Muscle Hustle
+8.  Hustle Magazine
+9.  https://www.gotquestions.org/church-in-Sardis.html
+10.  Focus on the Faith
+11. Prepare.  Coming soon.  Prepare while you can
+12.  Start praying.  Start Paying.  Pay Attention
