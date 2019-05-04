@@ -847,3 +847,5 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 6.  Count on Christ
 7.  Christ Centered
 8.  Across
+9.  Keanu
+10. Masayoshi
