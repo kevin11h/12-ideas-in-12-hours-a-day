@@ -927,5 +927,31 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 8.  Melatonin Serotonin White Gold Red Elixirs
 9.  Be -> Better -> Become -> Being -> Beauty -> Belong -> Beyond -> Belief -> Breathe
 10. Forgo Folly.  Forget Falsehood.  Free to Focus.  Focus on Faith
-11.
-12.
+11. Coin Party
+12.  Social Success Secrets  1. books
+2. community college
+3. conferences
+4. coworking offices
+5. coffee canvassing
+6. churches
+7. career student fairs
+8. facebook events
+9. eventbrite
+10. expo
+11. 42
+12. hackathons
+13. berkeley lab
+14. stanford lab
+15. meetups
+16. networking
+17. parties
+18. politicians
+19. mentors
+20.  Zoom
+21.  DraperU
+22. Hero City
+23. female founders
+24. womentors
+25. women startup stanford 1a13
+26.  happy hour
+27. haha happy habits , how many hours?  hustle
