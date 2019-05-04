@@ -849,7 +849,7 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 8.  Across
 9.  Keanu
 10. Masayoshi
-11.  Be -> Being -> Become -> Believe -> Belong -> Beyond -> Breathe
+11.  Be -> Being -> Become -> Beauty -> Believe -> Belong -> Beyond -> Breathe
 12.  move slow , flow
 
 1.  Abide
@@ -860,7 +860,7 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 6.  Hand Modeling
 7.  Hand Products
 8.  Transience
-9.
+9.  Steak knives
 10.
 11.
 12.
