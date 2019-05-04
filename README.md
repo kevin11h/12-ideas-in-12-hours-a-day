@@ -916,3 +916,6 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 10. How many hours? 
 11.  $1,000 - $X,000 Per month, 5 - 10 Hours Per Week
 12.  C4  Cool Cafe Color Comics Coffee Cafe CO3
+
+1.  Doing dirty work.  Do good, bad , dirty work
+2.  Haha Happy Hardwork Habit  Ha3
