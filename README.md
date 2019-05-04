@@ -874,3 +874,8 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 7.  Freelance writing
 8.  Freelance fiction
 9.  Prescient Presale
+10.  What are startup secrets?
+11.  Startup secrets
+12.  Starting Step Secret
+
+1.  Star = :star2:✞
