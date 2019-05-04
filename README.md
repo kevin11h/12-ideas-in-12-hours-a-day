@@ -892,3 +892,6 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 12.  Start praying.  Start Paying.  Pay Attention
 
 1.  What is the value of stillness?  Stay still.  Start up.  start stay still 
+2.  Startup Heroines.  Startup service to society.  Startup service to underserved communities
+3.  Anti Villain
+4.  Anti Hero
