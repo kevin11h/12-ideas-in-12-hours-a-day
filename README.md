@@ -926,6 +926,6 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 7.  Matcha Milk
 8.  Melatonin Serotonin White Gold Red Elixirs
 9.  Be -> Better -> Become -> Being -> Beauty -> Belong -> Beyond -> Belief -> Breathe
-10.
+10. Forgo Folly.  Forget Falsehood.  Free to Focus.  Focus on Faith
 11.
 12.
