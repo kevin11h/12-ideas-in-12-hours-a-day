@@ -861,6 +861,6 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 7.  Hand Products
 8.  Transience
 9.  Steak knives
-10.
+10. Previsionary
 11.
-12.
+12. Rewrite, Review, Redistribute, Retarget, Redeliver, Reliable, Revenue
