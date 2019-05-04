@@ -869,4 +869,7 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 2.  Be Success
 3.  Success Series
 4.  Christ's will fulfilled
-5.  
+5.  Revival
+6.  Revive, Restore, Restoration
+7.  Freelance writing
+8.  Freelance fiction
