@@ -855,4 +855,12 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 1.  Abide
 2.  Darkness to light, Death to life
 3.  Aphori.st
-4.
+4.  Silver Spoon, Free?  Recycle
+5.  Metals in the Hand, Horology
+6.  Hand Modeling
+7.  Hand Products
+8.  Transience
+9.
+10.
+11.
+12.
