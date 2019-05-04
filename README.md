@@ -878,4 +878,6 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 11.  Startup secrets
 12.  Starting Step Secret
 
-1.  Star = :star2:✞
+1.  Start = :star2:✞
+2.  Meaningful distractions
+3.  Daydream
