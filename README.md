@@ -842,3 +842,8 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 1.  Vlog
 2.  media.self
 3.  video
+4.  Generative, Creative Free Flow
+5.  Close to Christ
+6.  Count on Christ
+7.  Christ Centered
+8.  Across
