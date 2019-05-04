@@ -919,3 +919,5 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 
 1.  Doing dirty work.  Do good, bad , dirty work
 2.  Haha Happy Hardwork Habit  Ha3
+3.  Solution  Set a Schedule Set a Date Set Structure.  
+4.  Prepare environment = win  Victory
