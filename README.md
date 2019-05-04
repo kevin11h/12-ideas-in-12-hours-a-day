@@ -881,3 +881,6 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 1.  Start = :star2:✞
 2.  Meaningful distractions
 3.  Daydream
+4.  Life Mysteries
+5.  World Wonders
+6.  Curiosity
