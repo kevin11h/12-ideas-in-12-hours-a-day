@@ -849,8 +849,8 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 8.  Across
 9.  Keanu
 10. Masayoshi
-11.  Be -> Being -> Become -> Beauty -> Believe -> Belong -> Beyond -> Breathe
-12.  move slow , flow
+11.  Be -> Being -> Become -> Beauty -> Believe -> Belong -> Beyond -> Because -> Breathe
+12.  move slow, flow
 
 1.  Abide
 2.  Darkness to light, Death to life
