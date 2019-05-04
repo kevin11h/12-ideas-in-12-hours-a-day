@@ -890,3 +890,5 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 10.  Focus on the Faith
 11. Prepare.  Coming soon.  Prepare while you can
 12.  Start praying.  Start Paying.  Pay Attention
+
+1.  What is the value of stillness?  Stay still.  Start up.  start stay still 
