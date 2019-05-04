@@ -922,4 +922,10 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 3.  Solution  Set a Schedule Set a Date Set Structure.  
 4.  Prepare environment = win  Victory
 5.  Pineal gland gateway
-6.  
+6.  Tumeric Milk
+7.  Matcha Milk
+8.  Melatonin Serotonin White Gold Red Elixirs
+9.  Be -> Better -> Become -> Being -> Beauty -> Belong -> Beyond -> Belief -> Breathe
+10.
+11.
+12.
