@@ -838,3 +838,7 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 10.  Data Refinery
 11.  Hand products
 12.  High profit products
+
+1.  Vlog
+2.  media.self
+3.  video
