@@ -958,3 +958,4 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 28.  negativity -> nowhere
 29.  gerald tsai
 30.  secret smile
+31.  Tetra Payment Processors Paypal Dwolla Stripe Square
