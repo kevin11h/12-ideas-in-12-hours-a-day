@@ -964,3 +964,5 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 34.  Flow Go
 35.  Move, Moment, Slow Flow
 36.  Eternity in the Moment
+37.  Ask for Equity?
+38.  Moment of Eternity
