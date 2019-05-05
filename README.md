@@ -956,3 +956,5 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 26.  happy hour
 27. haha happy habits , how many hours?  hustle
 28.  negativity -> nowhere
+29.  gerald tsai
+30.  secret smile
