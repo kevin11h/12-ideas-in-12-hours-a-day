@@ -973,3 +973,5 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 43.  How do we get UBI fast?
 44.  Accountable.  Accountability
 45.  Receiveable.  Receivability
+46.  Where can we learn?
+47.  What did we learn?
