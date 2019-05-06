@@ -966,3 +966,10 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 36.  Eternity in the Moment
 37.  Ask for Equity?
 38.  Moment of Eternity
+39.  Accountability
+40.  Wisdom and Health > Wealth
+41.  Why is Wisdom Timeless?
+42.  Wisdom and Health over Wealth
+43.  How do we get UBI fast?
+44.
+45.
