@@ -984,3 +984,6 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 54.  UBI.news wordpress news
 55.  UBI.list wordpress news
 56.  Reportal
+57.  Coincept Coinnect
+58.  
+59.  
