@@ -985,5 +985,7 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 55.  UBI.list wordpress news
 56.  Reportal
 57.  Coincept Coinnect
-58.  
-59.  
+58.  Virgo Ventures
+59.  Rainbow Baby
+60.  Virgo Value Ventures Capital
+61.
