@@ -993,3 +993,11 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 63.  smartcrib TV  SmartCrib.tv
 64.  https://medium.com/@jimmysong/why-blockchain-is-not-the-answer-3b7d5f612d11
 65. https://dappradar.com/
+66.  "Not many of you should become teachers, my fellow believers, because you know that we who teach will be judged more strictly"  - James 3:1
+67.  How to grow my garden?
+68.  How to seed my fruits?
+69.  How to cultivate my garden?
+70.  How to grow my fruits?
+71.  How to prepare my food?
+72.  How to create + cook my food?
+73.  How to be healthy?
