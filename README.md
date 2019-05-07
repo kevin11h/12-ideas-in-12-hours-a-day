@@ -980,3 +980,6 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 50.  Phlegmatic
 51.  https://www.tehrantimes.com/news/415977/Phlegmatic-temperament-Specifications-and-lifestyle
 52.  Registry
+53.  Acceptability = Accountability + Receivability
+54.  UBI.news wordpress news
+55.  UBI.list wordpress news
