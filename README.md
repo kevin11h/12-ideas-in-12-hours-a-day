@@ -976,3 +976,7 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 46.  Where can we learn?
 47.  What did we learn?
 48.  Acceptability = Accountability + Receivability
+49.  Registry
+50.  Phlegmatic
+51.  https://www.tehrantimes.com/news/415977/Phlegmatic-temperament-Specifications-and-lifestyle
+52.  Registry
