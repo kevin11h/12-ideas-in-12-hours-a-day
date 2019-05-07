@@ -1004,3 +1004,4 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 74.  Religion, Education, 
 75.  Learning, leeching, loving, comics / humor haha
 76.  https://therabbitisin.com/there-is-only-one-question-worth-asking-deb76137ef40
+77.  https://www.yang2020.com/what-is-ubi/
