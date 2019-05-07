@@ -1001,3 +1001,6 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 71.  How to prepare my food?
 72.  How to create + cook my food?
 73.  How to be healthy?
+74.  Religion, Education, 
+75.  Learning, leeching, loving, comics / humor haha
+76.  
