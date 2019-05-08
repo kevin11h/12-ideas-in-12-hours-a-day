@@ -1010,3 +1010,8 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 80.  https://entrepreneurshandbook.co/what-to-expect-from-3-types-of-early-stage-investors-214e970690e7
 81.  Curiosity Driven
 82.  Naturally Curios
+83.  QOTD quote of the day
+84.  IOTD idea of the day
+85.  WOTD wisdom of the day daily wisdom
+86.  NOTD news of the day
+87.  Inspiration of the day
