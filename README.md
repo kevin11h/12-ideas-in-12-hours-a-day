@@ -1020,4 +1020,5 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 90.  How do we re-continue to educate us?
 91.  Define Defeat Deliver
 92.  Hi.io  Hackathon of Ideas
-93. 
+93.  Berkeley Jogging Club
+94.  Stanford Jogging Club
