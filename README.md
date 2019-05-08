@@ -1015,3 +1015,6 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 85.  WOTD wisdom of the day daily wisdom
 86.  NOTD news of the day
 87.  Inspiration of the day
+88.  Invention of the day
+89.  How do we review our notes?
+90.  How do we re-continue to educate us?
