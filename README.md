@@ -1007,3 +1007,6 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 77.  https://www.yang2020.com/what-is-ubi/
 78.  https://en.wikipedia.org/wiki/Noble_Silence
 79.  Words Work Worth
+80.  https://entrepreneurshandbook.co/what-to-expect-from-3-types-of-early-stage-investors-214e970690e7
+81.  Curiosity Driven
+82.  Naturally Curios
