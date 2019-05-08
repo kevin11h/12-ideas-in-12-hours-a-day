@@ -1022,3 +1022,5 @@ https://www.theverge.com/2015/2/5/7984489/silicon-valley-startup-entrepreneur-co
 92.  Hi.io  Hackathon of Ideas
 93.  Berkeley Jogging Club
 94.  Stanford Jogging Club
+95.  Berkeley Yoga Club
+96.  Stanford Yoga Club
