@@ -1047,3 +1047,5 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 2.  V3 Venus Value Venture(s) Capital
 3.  Vineyard Value Ventures
 4.  World Wine Tour
+5.  Serve Wisdom
+6.  Wine Wisdom
