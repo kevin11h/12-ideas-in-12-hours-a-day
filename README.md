@@ -1039,3 +1039,5 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 98.  Home school, Sunday School, Saturday School, Night School, Morning School, Autodidact, Polymath
 99.  Berkeley hiking club
 100. Stanford hiking club
+101.  https://www.theceolibrary.com/people/robert-kiyosaki
+102.
