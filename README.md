@@ -1040,4 +1040,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 99.  Berkeley hiking club
 100. Stanford hiking club
 101.  https://www.theceolibrary.com/people/robert-kiyosaki
-102.
+102.  https://www.theceolibrary.com/people/stephen-lew
