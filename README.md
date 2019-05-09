@@ -1050,3 +1050,6 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 5.  Serve Wisdom
 6.  Wine Wisdom
 7.  Wise Wine
+8.  Departure from Scripture
+9.  Clever, Cunning, Crafty, Conniving
+10.  Coinnive
