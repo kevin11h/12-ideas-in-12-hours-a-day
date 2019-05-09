@@ -1055,3 +1055,6 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 10.  Coinnive
 11.  Femquity
 12.  Femequity
+
+1.  Touchstone Ventures
+2.  
