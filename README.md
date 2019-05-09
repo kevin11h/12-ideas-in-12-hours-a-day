@@ -1037,3 +1037,5 @@ Obviously, that was not the answer she was looking for. After a few other studen
 Pausing for a moment to let that thought sink in, into the minds of kids below the age of 12, she continued by saying: “They were wise men, rich men, because they never stopped learning. They kept seeking new knowledge, knowledge from great teachers.”"
 
 98.  Home school, Sunday School, Saturday School, Night School, Morning School, Autodidact, Polymath
+99.  Berkeley hiking club
+100. Stanford hiking club
