@@ -1042,3 +1042,8 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 101.  https://www.theceolibrary.com/people/robert-kiyosaki
 102.  https://www.theceolibrary.com/people/stephen-lew
 103.  https://seattle.bibliocommons.com/list/share/79757695/347755497
+
+1.  Connect to Christ.  Attach to Vine
+2.  V3 Venus Value Venture(s) Capital
+3.  Vineyard Value Ventures
+4.  World Wine Tour
