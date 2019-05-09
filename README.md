@@ -1041,3 +1041,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 100. Stanford hiking club
 101.  https://www.theceolibrary.com/people/robert-kiyosaki
 102.  https://www.theceolibrary.com/people/stephen-lew
+103.  https://seattle.bibliocommons.com/list/share/79757695/347755497
