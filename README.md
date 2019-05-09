@@ -1057,4 +1057,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 12.  Femequity
 
 1.  Touchstone Ventures
-2.  
+2.  CONNECTIVITY
