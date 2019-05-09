@@ -1049,3 +1049,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 4.  World Wine Tour
 5.  Serve Wisdom
 6.  Wine Wisdom
+7.  Wise Wine
