@@ -1060,3 +1060,5 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 2.  CONNECTIVITY
 3.  Pearls of Wisdom
 4.  PearlHill Road > SandHill Road
+5.  Pearl Price
+6.  Pearl Wise
