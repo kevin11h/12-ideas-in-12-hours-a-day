@@ -1062,3 +1062,6 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 4.  PearlHill Road > SandHill Road
 5.  Pearl Price
 6.  Pearl Wise
+7.  Bit Interleaved
+8.  Bitleaf
+9.  Bitree
