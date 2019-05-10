@@ -1072,3 +1072,7 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 1.  Provision
 2.  Provisionary
 3.  Principals Principles Interest Insights
+4.  Forget Falsehood, Folly, and Forgo Fault.  Focus on the Faith!
+5.  Cling to Christ
+6.  Close to Christ
+7.  Christ Cornerstone
