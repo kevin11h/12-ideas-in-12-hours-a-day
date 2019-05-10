@@ -1080,6 +1080,7 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 9.  Christ Cares
 10.  Care about Christ
 11.  Cross Care 
-12.
+12.  Forget Falsehood, Folly, Fallacy.  Forgive fault.  Focus on the Faith!
 
-1.
+1. Count on the Cross
+2.  Count on Christ
