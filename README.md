@@ -1071,3 +1071,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 
 1.  Provision
 2.  Provisionary
+3.  Principals Principles Interest Insights
