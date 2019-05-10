@@ -1076,3 +1076,10 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 5.  Cling to Christ
 6.  Close to Christ
 7.  Christ Cornerstone
+8.  Death is Departure from Scripture
+9.  Christ Cares
+10.  Care about Christ
+11.  Cross Care 
+12.
+
+1.
