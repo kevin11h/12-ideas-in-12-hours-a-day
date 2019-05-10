@@ -1065,3 +1065,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 7.  Bit Interleaved
 8.  Bitleaf
 9.  Bitree
+10.  https://news.livecoinwatch.com/week-crypto-fidelity-massive-digital-asset-demand-bitcoin-screams-5700-bakkt-crypto-custodian/
