@@ -1067,3 +1067,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 9.  Bitree
 10.  https://news.livecoinwatch.com/week-crypto-fidelity-massive-digital-asset-demand-bitcoin-screams-5700-bakkt-crypto-custodian/
 11.  https://news.livecoinwatch.com/robert-kiyosaki-calls-us-dollar-fake-says-bitcoin-will-be-its-replacement/
+12.  https://en.wikipedia.org/wiki/John_Dee
