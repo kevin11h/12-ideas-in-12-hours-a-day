@@ -1084,3 +1084,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 
 1. Count on the Cross
 2.  Count on Christ
+3.  http://jungcurrents.com/bob-marley-psalm-118-carl-jung
