@@ -1088,3 +1088,6 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 4.  eggs
 5.  stem cells
 6. placental nutritio
+7.  World Trade and Travel Tour WT3
+8. Be -> Better -> Become -> Being -> Beauty -> Belong -> Best -> Beyond -> Belief -> Breathe
+9.
