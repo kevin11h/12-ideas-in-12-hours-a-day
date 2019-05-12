@@ -1091,3 +1091,6 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 7.  World Trade and Travel Tour WT3
 8.  Be -> Better -> Become -> Being -> Beauty -> Belong -> Best -> Beyond -> Belief -> Breathe
 9.  Be -> Beloved -> Being -> Become -> Better -> Beauty -> Belong -> Best -> Beyond -> Belief -> Breathe
+10.  How to read the Bible?
+11.  Where is a God guided reading plan?
+12.  Destroy the demons of delusion and distraction.  Focus on the Faith.  Count on Christ
