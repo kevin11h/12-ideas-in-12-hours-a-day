@@ -1103,7 +1103,7 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 6.  Charmed by Christ
 7.  Christ Curious
 8.  Christ Charged
-9.
-10.
+9.  Where can I buy props?  Shop Starcraft Props
+10.  Where can I buy Pylons?
 11.
 12.
