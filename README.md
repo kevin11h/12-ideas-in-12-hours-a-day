@@ -1096,4 +1096,14 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 12.  Destroy the demons of delusion and distraction.  Focus on the Faith.  Count on Christ
 
 1. Jesus Verse Wine Glasses
-2.
+2. Verse.shirts  Verse Bands.  Words of Christ Clothing Shopify.  Donations
+3. Convicted in Christ
+4.  Chasing Christ
+5.  Christ's Chosen
+6.  Charmed by Christ
+7.  Christ Curious
+8.  Christ Charged
+9.
+10.
+11.
+12.
