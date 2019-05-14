@@ -1115,3 +1115,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 5.  https://www.coindesk.com/ex-tron-cto-denies-founder-justin-suns-accusations-of-embezzlement-bribery
 6.  https://medium.com/@volumenetworkblockchain/why-should-i-rebuild-a-new-tron-4ea4dd83bb7b
 7.  Externship
+8.  https://medium.com/mobius-network/chinas-chandler-guo-and-jack-lee-of-foxconn-joining-mobius-advisory-board-b0d315917606
