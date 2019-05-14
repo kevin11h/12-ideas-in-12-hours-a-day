@@ -1123,3 +1123,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 
 1.  https://www.gotquestions.org/pride-of-life.html
 2.  Call on Christ
+3.  college knowledge
