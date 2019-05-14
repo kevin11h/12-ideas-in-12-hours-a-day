@@ -1106,4 +1106,8 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 9.  Where can I buy props?  Shop Starcraft Props
 10.  Where can I buy Pylons?
 11.  https://cointelegraph.com/news/ampleworth-publishes-updated-white-paper-for-non-correlated-price-stable-digital-asset
-12.
+12.  Contact Christ
+
+1.  Covet Christ
+2.  Connect with Christ
+3.  Convert to Christ
