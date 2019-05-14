@@ -1116,3 +1116,7 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 6.  https://medium.com/@volumenetworkblockchain/why-should-i-rebuild-a-new-tron-4ea4dd83bb7b
 7.  Externship
 8.  https://medium.com/mobius-network/chinas-chandler-guo-and-jack-lee-of-foxconn-joining-mobius-advisory-board-b0d315917606
+9.  Alumni business school stock, student equity
+10.  Student Stock + Equity
+11.  Student Loan <- Soverign City Bonds 
+12.  Buy Student Loans <- City  Bonds
