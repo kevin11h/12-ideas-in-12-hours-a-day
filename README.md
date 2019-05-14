@@ -1122,3 +1122,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 12.  Buy Student Loans <- City  Bonds
 
 1.  https://www.gotquestions.org/pride-of-life.html
+2.  Call on Christ
