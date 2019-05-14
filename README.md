@@ -1120,3 +1120,5 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 10.  Student Stock + Equity
 11.  Student Loan <- Soverign City Bonds 
 12.  Buy Student Loans <- City  Bonds
+
+1.  https://www.gotquestions.org/pride-of-life.html
