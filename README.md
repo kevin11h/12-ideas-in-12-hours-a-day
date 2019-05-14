@@ -1114,3 +1114,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 4.  https://www.coindesk.com/htc-has-added-in-wallet-crypto-swaps-to-its-exodus-phone
 5.  https://www.coindesk.com/ex-tron-cto-denies-founder-justin-suns-accusations-of-embezzlement-bribery
 6.  https://medium.com/@volumenetworkblockchain/why-should-i-rebuild-a-new-tron-4ea4dd83bb7b
+7.  Externship
