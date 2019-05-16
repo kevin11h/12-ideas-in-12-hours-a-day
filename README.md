@@ -1138,4 +1138,6 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 2.  Priceless Pearls of Wisdom
 3.  Cling to Christ
 4.  #PQRST #QSR #protocols
-5.
+5.  Physiology + Metaphysics + Math = Metaphysiologistical
+6.  
+7.
