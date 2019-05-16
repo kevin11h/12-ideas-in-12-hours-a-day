@@ -1131,3 +1131,11 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 8. CryptoTimeline
 9.  Crypto Time = Crypto Blockchain News + Location Data + Date Time :]
 10.  Crypto world = Crypto News + Activities + Expos + Map + data + geo-location + globality + locality + data + date + time + news
+11.  Narcissus's Notebook
+12.  Investor Pitchbook + Famous Investor Questions + Luxury Pen (Sword) "The Quality of your life depends on your questions"
+
+1.  True Treasures:  1) Wisdom 2) Time 3) Health > Wealth
+2.  Priceless Pearls of Wisdom
+3.
+4.
+5.
