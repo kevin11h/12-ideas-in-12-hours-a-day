@@ -1130,4 +1130,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 7.  humble & hustle
 8. CryptoTimeline
 9.  Crypto Time = Crypto Blockchain News + Location Data + Date Time :]
-10.
+10.  Crypto world = Crypto News + Activities + Expos + Map + data + geo-location + globality + locality + data + date + time + news
