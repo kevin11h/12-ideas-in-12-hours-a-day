@@ -1137,5 +1137,5 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 1.  True Treasures:  1) Wisdom 2) Time 3) Health > Wealth
 2.  Priceless Pearls of Wisdom
 3.  Cling to Christ
-4.
+4.  #PQRST #QSR #protocols
 5.
