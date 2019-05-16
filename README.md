@@ -1141,3 +1141,5 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 5.  Physiology + Metaphysics + Math = Metaphysiologistical
 6.  Thiel Tests (7) + Calacanis Characteristics (11) + Chris Yeh Criterion (?) + Buddha's blessings (4) + Sun Tzu's Five Fundamental Factors (5)
 7.  Why Ask Questions?  https://en.wikipedia.org/wiki/Question#By_purpose
+8.  School List
+9.  Public School, Private School, Sunday School, Home School, Night School, Summer School, Alternative School, New Skool, New Skills
