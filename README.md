@@ -1146,3 +1146,6 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 10.  https://www.gotquestions.org/questions-in-the-Bible.html
 11.  Peng's Pathology
 12.  Critical Channel, Supply Path Toll, Art of Profitability
+
+1.  https://cointelegraph.com/news/bitcoin-cash-experiences-bug-during-scheduled-hard-fork-upgrade
+2. 
