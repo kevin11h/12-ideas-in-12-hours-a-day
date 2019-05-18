@@ -1149,4 +1149,6 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 
 1.  https://cointelegraph.com/news/bitcoin-cash-experiences-bug-during-scheduled-hard-fork-upgrade
 2.  golf.work marina  + real estate Broadway and Lyon St SF
-3.  
+3.  Cleaned by Christ  
+4.  Cured by Christ
+5.  Christ Crucified 1 Corinthians 1:2
