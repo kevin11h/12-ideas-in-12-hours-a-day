@@ -1154,3 +1154,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 5.  Christ Crucified 1 Corinthians 1:2
 6.  Renew Contract Contact
 7.  Crypto Watches Time Father
+8.  Be -> Being -> Begin -> Become -> Beloved -> Beauty -> Better -> Belong -> Best -> Beyond -> Belief -> Breathe
