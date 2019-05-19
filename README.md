@@ -1156,6 +1156,6 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 7.  Crypto Watches Time Father
 8.  Be -> Being -> Begin -> Become -> Beloved -> Beauty -> Better -> Belong -> Best -> Beyond -> Belief -> Breathe
 9.  Crypto Clock.  When is the halfening?
-10.
-11.
+10.  Be -> Being -> Begin -> Become -> Beloved -> Beauty -> Better -> Belong -> Best -> Beyond -> Belief -> Begone -> Breath
+11.  Sick of the Sight of Sin
 12.
