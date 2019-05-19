@@ -1155,3 +1155,7 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 6.  Renew Contract Contact
 7.  Crypto Watches Time Father
 8.  Be -> Being -> Begin -> Become -> Beloved -> Beauty -> Better -> Belong -> Best -> Beyond -> Belief -> Breathe
+9.  Crypto Clock.  When is the halfening?
+10.
+11.
+12.
