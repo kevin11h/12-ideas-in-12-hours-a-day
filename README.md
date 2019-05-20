@@ -1158,4 +1158,8 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 9.  Crypto Clock.  When is the halfening?
 10.  Be -> Being -> Begin -> Become -> Beloved -> Beauty -> Better -> Belong -> Best -> Beyond -> Belief -> Begone -> Breath
 11.  Sick of the Sight of Sin
-12.
+12.  What is the Sino Sign?
+
+1.  What is the Eurasian Question?
+2.  Whow defines the destiny of Asia?  Eurasia?  Sinosphere?
+3.
