@@ -1165,3 +1165,10 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 3.  https://tzuchi.us/blog/tzu-chi-foundation-provides-immediate-taiwan-earthquake-disaster-relief
 4.  Senex Zenex
 5.  Play  Poker
+6.  hobby into help
+7.  Should I refund?
+8.  Where to get scholarship?
+9.
+10.
+11.
+12.
