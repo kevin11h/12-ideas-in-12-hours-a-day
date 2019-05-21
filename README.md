@@ -1172,3 +1172,16 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 10. Insight
 11. Summarize
 12. Memorize
+
+1.  Selective
+2.  Connective
+3.
+4.
+5.
+6.
+7.
+8.
+9.
+10.
+11.
+12.
