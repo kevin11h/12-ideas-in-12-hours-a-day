@@ -1168,7 +1168,7 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 6.  hobby into help
 7.  Should I refund?
 8.  Where to get scholarship?
-9.
-10.
-11.
-12.
+9.  Highlight
+10. Insight
+11. Summarize
+12. Memorize
