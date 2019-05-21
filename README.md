@@ -1176,7 +1176,7 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 1.  Selective
 2.  Connective
 3.  https://cointelegraph.com/news/80-percent-of-chinese-have-never-heard-of-bitcoin-billionaire-investor-charles-xue
-4.
+4.  #Free #Fast #FeelGood
 5.
 6.
 7.
