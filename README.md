@@ -1179,7 +1179,7 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 4.  #Free #Fast #FeelGood
 5.  "Talent is hitting a target no one else can hit Genius is hitting a target no one else can see"
 6.  "Talent is universal; opportunity is not."
-7.
+7.  BELIEVE to receive
 8.
 9.
 10.
