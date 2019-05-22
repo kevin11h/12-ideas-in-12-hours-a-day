@@ -1180,7 +1180,7 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 5.  "Talent is hitting a target no one else can hit Genius is hitting a target no one else can see"
 6.  "Talent is universal; opportunity is not."
 7.  BELIEVE to receive
-8.
+8.  http://www.nataliakuna.com/uploads/6/9/9/2/6992960/published/414100023.jpg?1491443327
 9.
 10.
 11.
