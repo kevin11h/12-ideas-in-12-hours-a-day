@@ -1183,5 +1183,7 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 8.  http://www.nataliakuna.com/uploads/6/9/9/2/6992960/published/414100023.jpg?1491443327
 9.  What is real rewards?
 10. What is true treasures?
-11.
-12.
+11.  https://en.wikipedia.org/wiki/Trinity_study 4% ruletrinity study
+12.  72% rule
+
+1.
