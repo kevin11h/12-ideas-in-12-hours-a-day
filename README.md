@@ -1188,3 +1188,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 
 1.  Play Poker
 2.  Link VotD with Github . generate new verse and create on github data
+3.  Information Research Delivery App.  Book bicycles
