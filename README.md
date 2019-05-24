@@ -1190,3 +1190,4 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 2.  Link VotD with Github . generate new verse and create on github data
 3.  Information Research Delivery App.  Book bicycles.  Question -> Books / Articles / Newsletters -> Delivery.  Ascribr.  Quora -> Uber -> Amazon / PayPal Payment Processor ~ Free Public Libraries
 4.  https://cointelegraph.com/news/maltese-government-awards-19-blockchain-scholarships-using-dlt-fund
+5.  (1) Heal -> (2) Help
