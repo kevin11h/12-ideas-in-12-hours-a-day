@@ -1193,8 +1193,8 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 5.  (1) Heal -> (2) Help
 6.  trivial rituals and trials
 7.  wechat uber hybrid 
-8.  Ascibe = Uber + Upwork for PhD (Independent) Researchers -> Book Publishing Products
-9.  
+8.  Ascibe = Quora -> Uber + Upwork for PhD (Independent) Researchers -> Book Publishing Products
+9.  Transcribe Ascribe -> Note taking students creates books based on class / course work 
 10.
 11.
 12.
