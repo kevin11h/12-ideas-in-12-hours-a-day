@@ -1195,6 +1195,10 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 7.  wechat uber hybrid 
 8.  Ascibe = Quora -> Uber + Upwork for PhD (Independent) Researchers -> Book Publishing Products
 9.  Transcribe Ascribe -> Note taking students creates books based on class / course work 
-10.
-11.
-12.
+10.  First Five Features and Functionalities
+11.  First Five Minute Impression that Lasts
+12.  Five Fundamentals Factors of Success - 1. Dao 2. Heaven 3. Earth 4. Command 5. Law = 1. Why 2. When 3. Where 4. Who 5. What
+
+1.
+
+
