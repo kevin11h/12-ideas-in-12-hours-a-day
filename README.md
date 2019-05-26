@@ -1199,6 +1199,6 @@ Pausing for a moment to let that thought sink in, into the minds of kids below t
 11.  First Five Minute Impression that Lasts
 12.  Five Fundamentals Factors of Success - 1. Dao 2. Heaven 3. Earth 4. Command 5. Law = 1. Why 2. When 3. Where 4. Who 5. What
 
-1.
-
-
+1. AMLF - AMXF AMWF AMLIFE wordpress video site
+2. AMWF wordpress video site
+3.  AMWF cosplay wordpress video site
