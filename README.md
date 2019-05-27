@@ -1217,11 +1217,31 @@ Buddha 4 wheels , Sun Tzu > 5 Fundamental factors 7 Calculations, Chris Criteria
 2.  How to blog a book?
 3.  How to book notes from a class?  i.e. Blake Masters 0-1
 4.  Seiko Smart Watch Casio Crypto Wallet Watch Time + Money Armida Credor Halios  https://cointelegraph.com/news/franck-muller-releases-luxury-watch-with-bitcoin-cold-wallet-functionality
+5.  MuleMaps
+6.  Prototyper
+7.  Amen Amenity So BE it
+8.  World Trademark(et) and Patent Hackathon
+9.  World Patent and Trademark Hackathon
+10.  Narratology
+11.  Questology
+12.  Need Notebooks
+
+1.  Need Highlighters
+2.  Crypto Smart Watch & Wallet & Collectibles & Camera QR Code Scanner
+3.  Reading is a Relationship #r2  reading = relations.  Reading relations
+4.  Crypto Yellow Book.  4(a) Crypto Yello Magazine - Yelp Like List of businesses and services 4(b) Subscription 4(c) Crypto market watch
+5.  Crypto Yellow pages.  GreenBook?  Blue Book (price index)
+6.  Inventor's Notebook
+7.  Music Box
+8. Mule Maps
+9.  Infographic "Informatic" = Information + Visualization + Automatic Slide Deck Pitch Template w/ Charts + Graphs + Tables + Outlines + Pictures + Profiles + Products + Traction + Quaternity + Decision Models + People + Testimonials + Symbols + Cartesian Coordinates + Trees + Maps + Line Graphs + Bar Charts + Trees + Metaphors + Myths + Narratives + User Stories + User Experience + Questions + Traction
+10.  Study Strategies Blog (Note taking)  Experts in Education, Students Strategies, Test Designers, Training Methodologies + Learning Systematics + Systemology
+11.  Train Track.  Training and Tracking systems.  Training + Traction
+12.  Tim's Theology = Thesis + Team + Timing + Target Marget + Traction (where is our position?) + 
+
+1.  What is our business model?  How do we receive recurring revenue?  What is our target market + customers + product fit?  Customer Creation strategy?  How is our distribution system?  What are the logistics?
+2.  Steve Hs.  Questions = Where is our channels?  Where is our roadmap? Who are our distributors?  What is our unfair advantage?  What is our market differentiator?  What is unique selling point USP?  What is the value proposition?
+3.
+4.
 5.
-6.
-7.
-8.
-9.
-10.
-11.
-12.
+
