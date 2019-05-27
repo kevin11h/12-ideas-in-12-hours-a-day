@@ -1214,8 +1214,8 @@ Buddha 4 wheels , Sun Tzu > 5 Fundamental factors 7 Calculations, Chris Criteria
 12. AMWF Mobile App Chinese Translation Spanish Translation
 
 1. AMBF Mobile App Chinese Translation Spanish Translation
-2.
-3.
+2.  How to blog a book?
+3.  How to book notes from a class?  i.e. Blake Masters 0-1
 4.
 5.
 6.
