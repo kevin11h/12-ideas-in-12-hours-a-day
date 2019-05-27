@@ -1237,11 +1237,12 @@ Buddha 4 wheels , Sun Tzu > 5 Fundamental factors 7 Calculations, Chris Criteria
 9.  Infographic "Informatic" = Information + Visualization + Automatic Slide Deck Pitch Template w/ Charts + Graphs + Tables + Outlines + Pictures + Profiles + Products + Traction + Quaternity + Decision Models + People + Testimonials + Symbols + Cartesian Coordinates + Trees + Maps + Line Graphs + Bar Charts + Trees + Metaphors + Myths + Narratives + User Stories + User Experience + Questions + Traction
 10.  Study Strategies Blog (Note taking)  Experts in Education, Students Strategies, Test Designers, Training Methodologies + Learning Systematics + Systemology
 11.  Train Track.  Training and Tracking systems.  Training + Traction
-12.  Tim's Theology = Thesis + Team + Timing + Target Marget + Traction (where is our position?) + 
+12.  Tim's Theology = Thesis + Team + Timing + Target Marget & Investor Ownership + Traction  (where is our position?) + 
 
 1.  What is our business model?  How do we receive recurring revenue?  What is our target market + customers + product fit?  Customer Creation strategy?  How is our distribution system?  What are the logistics?
 2.  Steve Hs.  Questions = Where is our channels?  Where is our roadmap? Who are our distributors?  What is our unfair advantage?  What is our market differentiator?  What is unique selling point USP?  What is the value proposition?
-3.
-4.
-5.
-
+3.  Demand -> Payment -> Distribution -> Supply Chain
+4.  Align Spine Outline
+5.  TOC .  Terms of Conditions.  Table of Contents #TOC #toc
+6.  caliber and credibility 
+7.  Narratology Art of Story
