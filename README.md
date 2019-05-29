@@ -1246,3 +1246,8 @@ Buddha 4 wheels , Sun Tzu > 5 Fundamental factors 7 Calculations, Chris Criteria
 5.  TOC .  Terms of Conditions.  Table of Contents #TOC #toc
 6.  caliber and credibility 
 7.  Narratology Art of Story
+8.  People Places Payment Protocol P2P2P
+9.  Role , Office, Business Cards, Team
+10.
+11.
+12.
