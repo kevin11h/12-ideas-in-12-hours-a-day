@@ -1251,3 +1251,5 @@ Buddha 4 wheels , Sun Tzu > 5 Fundamental factors 7 Calculations, Chris Criteria
 10.  2 TIMOTHY 1:7 For God hath not given us the spirit of fear, but of power and of love and of a sound mind.
 11.  Wine Guitar Classical Cafe
 12.  Beach Banjo Pina Colada
+
+1.  How do we put our patents on blockchain ?  Patentology .  Merlyne
