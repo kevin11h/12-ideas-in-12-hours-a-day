@@ -1257,3 +1257,7 @@ Buddha 4 wheels , Sun Tzu > 5 Fundamental factors 7 Calculations, Chris Criteria
 3.  Inventor's Notebook  
 4.  Investor's Notebook
 5.  People Places Payment Products
+6.  Inventor's Diary
+7.  Imagineer's Diary
+8.  Investor's Notebook
+9.  Engineering Journal
