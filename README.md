@@ -1249,5 +1249,5 @@ Buddha 4 wheels , Sun Tzu > 5 Fundamental factors 7 Calculations, Chris Criteria
 8.  People Places Payment Protocol P2P2P
 9.  Role , Office, Business Cards, Team
 10.  2 TIMOTHY 1:7 For God hath not given us the spirit of fear, but of power and of love and of a sound mind.
-11.
-12.
+11.  Wine Guitar Classical Cafe
+12.  Beach Banjo Pina Colada
