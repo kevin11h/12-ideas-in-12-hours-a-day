@@ -1253,3 +1253,7 @@ Buddha 4 wheels , Sun Tzu > 5 Fundamental factors 7 Calculations, Chris Criteria
 12.  Beach Banjo Pina Colada
 
 1.  How do we put our patents on blockchain ?  Patentology .  Merlyne
+2.  Gratitude Journal
+3.  Inventor's Notebook  
+4.  Investor's Notebook
+5.
