@@ -1280,6 +1280,13 @@ Buddha 4 wheels , Sun Tzu > 5 Fundamental factors 7 Calculations, Chris Criteria
 
 1.  Mᴂtis Method
 2.  Communicate with Clarity Confidence Concise Clear Compelling Convincing Co-integrity
-3.
-4.
-5.
+3.  Feed the Need to Read
+4.  Feed my Need to Read
+5.  
+6.
+7.
+8.
+9.
+10.
+11.
+12.
