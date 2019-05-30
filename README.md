@@ -1286,7 +1286,7 @@ Buddha 4 wheels , Sun Tzu > 5 Fundamental factors 7 Calculations, Chris Criteria
 6.  Heart of Humility
 7.  Humble of Heart
 8.  Heartology
-9.
+9.  https://heidiroizen.tumblr.com/
 10.
 11.
 12.
