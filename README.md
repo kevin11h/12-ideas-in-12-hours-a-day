@@ -1263,3 +1263,13 @@ Buddha 4 wheels , Sun Tzu > 5 Fundamental factors 7 Calculations, Chris Criteria
 9.  Engineering Journal
 10.  Stanford Hospital
 11.  Stanford Healthcare
+12.  Prayer + Protector:  "Dear Lord Jesus Christ, Defeat the Demons of Death and Delusion within me.  Thank you"
+
+1.  Metaphorical Mind Maps
+2.  Map Metaphors
+3.  Language as metaphor
+4.  Communicate Confidence, Convince, 
+5.  Convince with Confidence, Commonality, Communion, Creativity
+6.  Commit to Christ
+7.  Created by Christ
+8.  Christ's Crede
