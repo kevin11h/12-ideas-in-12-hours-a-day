@@ -1278,5 +1278,5 @@ Buddha 4 wheels , Sun Tzu > 5 Fundamental factors 7 Calculations, Chris Criteria
 11.  Method of Measure -> Manage & Monetize
 12.  Mission, Mantra, Meaning
 
-1.
+1.  Mᴂtis Method
 2.
