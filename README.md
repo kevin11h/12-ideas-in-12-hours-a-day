@@ -1273,3 +1273,10 @@ Buddha 4 wheels , Sun Tzu > 5 Fundamental factors 7 Calculations, Chris Criteria
 6.  Commit to Christ
 7.  Created by Christ
 8.  Christ's Crede
+9.  Startup Metrics
+10.  Startup.Metrics  blog bout each measure manage monetize method
+11.  Method of Measure -> Manage & Monetize
+12.  Mission, Mantra, Meaning
+
+1.
+2.
