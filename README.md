@@ -1303,3 +1303,4 @@ For I am convinced that neither death nor life, neither angels nor demons, neith
 8.  Mortal Coil Kundalini  http://the-end-time.blogspot.com/2014/04/how-satan-twisted-moses-brazen-serpent.html https://en.wikipedia.org/wiki/Mortal_coil https://en.wikipedia.org/wiki/Serpent_(symbolism)
 9.  The cure is in the curse(d)
 10.  https://en.wikipedia.org/wiki/Pharmakon_(philosophy)
+11.  https://www.gotquestions.org/bronze-serpent.html
