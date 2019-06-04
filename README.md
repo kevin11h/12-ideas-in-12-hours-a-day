@@ -1289,4 +1289,11 @@ Buddha 4 wheels , Sun Tzu > 5 Fundamental factors 7 Calculations, Chris Criteria
 9.  https://heidiroizen.tumblr.com/
 10.  Skyport  Skyportal
 11.  Starport Stargate
-12.
+12.  Romans 8:38-39 NIV - For I am convinced that neither death - Bible ...
+https://www.biblegateway.com/passage/?search=Romans+8%3A38-39&version...
+For I am convinced that neither death nor life, neither angels nor demons, neither the present nor the future, nor any powers, neither height nor.
+
+1.  First Five year Financial Figures
+2. in the land of the blind, the one-eyed man is king. Even someone with limited abilities or opportunities is dominant over, and considered special by, those who have even fewer abilities and opportunities; the value of any ability depends on its commonness.
+3.  WorKing => Word King 
+4.  GlassesFetish Magazine
