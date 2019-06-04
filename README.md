@@ -1316,4 +1316,5 @@ For I am convinced that neither death nor life, neither angels nor demons, neith
 8.  https://en.wikipedia.org/wiki/Semiotics Signs Symbols Miracles Wonders Semiotics Semantics Syntactics Living Language Word becomes flesh.  Mantra
 9.  https://www.gotquestions.org/bronze-serpent.html
 10.  https://www.biblegateway.com/resources/commentaries/IVP-NT/Rev/Message-Pergamum
-11.  https://www.reddit.com/r/aznidentity/comments/bti16p/this_is_why_in_general_white_people_are_creepy/
+11.  Aryan Psychoanalogy https://www.reddit.com/r/aznidentity/comments/bti16p/this_is_why_in_general_white_people_are_creepy/
+12.
