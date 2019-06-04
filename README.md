@@ -1307,3 +1307,5 @@ For I am convinced that neither death nor life, neither angels nor demons, neith
 12.  Intelligence. Inter leger  inter ledger . Intelligence comes from the Latin inter-legere
 
 1. http://www.dankalia.com/paranoia/serpent.htm
+2.  Ohm. Omen. Mantra - Semiotics  https://en.wikipedia.org/wiki/Semiotics
+3.  We are living language.  Word becomes flesh  http://www.dankalia.com/paranoia/serpent.htm
