@@ -1315,3 +1315,4 @@ For I am convinced that neither death nor life, neither angels nor demons, neith
 7.  Crushed by Christ, Cornerstone
 8.  https://en.wikipedia.org/wiki/Semiotics Signs Symbols Miracles Wonders Semiotics Semantics Syntactics Living Language Word becomes flesh.  Mantra
 9.  https://www.gotquestions.org/bronze-serpent.html
+10.  https://www.biblegateway.com/resources/commentaries/IVP-NT/Rev/Message-Pergamum
