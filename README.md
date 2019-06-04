@@ -1297,3 +1297,5 @@ For I am convinced that neither death nor life, neither angels nor demons, neith
 2. in the land of the blind, the one-eyed man is king. Even someone with limited abilities or opportunities is dominant over, and considered special by, those who have even fewer abilities and opportunities; the value of any ability depends on its commonness.
 3.  WorKing => Word King 
 4.  GlassesFetish Magazine
+5.  Dear Our Lord Jesus Christ Deliver us from Sin - Destroy the demons of deception, delusion and depravity within me.  Amen
+6. 
