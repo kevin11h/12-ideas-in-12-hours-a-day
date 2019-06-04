@@ -1304,3 +1304,6 @@ For I am convinced that neither death nor life, neither angels nor demons, neith
 9.  The cure is in the curse(d)
 10.  https://en.wikipedia.org/wiki/Pharmakon_(philosophy)
 11.  https://www.gotquestions.org/bronze-serpent.html
+12.  Intelligence. Inter leger  inter ledger . Intelligence comes from the Latin inter-legere
+
+1. http://www.dankalia.com/paranoia/serpent.htm
