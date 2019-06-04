@@ -1301,3 +1301,4 @@ For I am convinced that neither death nor life, neither angels nor demons, neith
 6. What meaning does man become king?
 7.  Stanford Alchemy https://arcade.stanford.edu/rofl/artificial-men-alchemy-transubstantiation-and-homunculus
 8.  Mortal Coil Kundalini  http://the-end-time.blogspot.com/2014/04/how-satan-twisted-moses-brazen-serpent.html https://en.wikipedia.org/wiki/Mortal_coil https://en.wikipedia.org/wiki/Serpent_(symbolism)
+9.  The cure is in the curse(d)
