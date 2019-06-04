@@ -1310,3 +1310,7 @@ For I am convinced that neither death nor life, neither angels nor demons, neith
 2.  Ohm. Omen. Mantra - Semiotics  https://en.wikipedia.org/wiki/Semiotics
 3.  We are living language.  Word becomes flesh  http://www.dankalia.com/paranoia/serpent.htm
 4.  semiotics syntactics symbols semantics signs
+5.  https://en.wikipedia.org/wiki/Semiotics
+6.  Cured by Christ
+7.  Crushed by Christ, Cornerstone
+8.  https://en.wikipedia.org/wiki/Semiotics Signs Symbols Miracles Wonders Semiotics Semantics Syntactics Living Language Word becomes flesh.  Mantra
