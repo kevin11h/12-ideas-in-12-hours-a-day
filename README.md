@@ -1317,4 +1317,6 @@ For I am convinced that neither death nor life, neither angels nor demons, neith
 9.  https://www.gotquestions.org/bronze-serpent.html
 10.  https://www.biblegateway.com/resources/commentaries/IVP-NT/Rev/Message-Pergamum
 11.  Aryan Psychoanalogy https://www.reddit.com/r/aznidentity/comments/bti16p/this_is_why_in_general_white_people_are_creepy/
-12.
+12.  https://www.gotquestions.org/garden-of-Eden-location.html
+
+1.  https://christianity.stackexchange.com/questions/26794/what-is-the-significance-of-the-names-of-the-4-rivers-in-the-garden-of-eden
