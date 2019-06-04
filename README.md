@@ -1298,4 +1298,4 @@ For I am convinced that neither death nor life, neither angels nor demons, neith
 3.  WorKing => Word King 
 4.  GlassesFetish Magazine
 5.  Dear Our Lord Jesus Christ Deliver us from Sin - Destroy the demons of deception, delusion and depravity within me.  Amen
-6. 
+6. What meaning does man become king?
