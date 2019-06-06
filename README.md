@@ -1320,3 +1320,9 @@ For I am convinced that neither death nor life, neither angels nor demons, neith
 12.  https://www.gotquestions.org/garden-of-Eden-location.html
 
 1.  https://christianity.stackexchange.com/questions/26794/what-is-the-significance-of-the-names-of-the-4-rivers-in-the-garden-of-eden
+2.  Man in mantra.  Word becomes flesh.  Semiosis, semiotics, semblance, signs, symbols, symbiotycs, symbiology, miracles, meanings, magic, mantra, wonders
+3.  semiotics
+4.  Devil in details, god in Gaps
+5.  Be Well Before wealthy
+6.  First Figure Final Financial Fitness
+7.  6Fs Family Friends Financial Fitness Fun
