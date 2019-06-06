@@ -1328,3 +1328,4 @@ For I am convinced that neither death nor life, neither angels nor demons, neith
 7.  6Fs Family Friends Financial Fitness Fun
 8.  Talitha Cumi
 9. semiotics mimesis pharmakon
+10. https://en.wikipedia.org/wiki/Disciple_(Christianity)#Women_who_followed_Jesus
