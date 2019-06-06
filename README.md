@@ -1329,3 +1329,6 @@ For I am convinced that neither death nor life, neither angels nor demons, neith
 8.  Talitha Cumi
 9. semiotics mimesis pharmakon
 10. https://en.wikipedia.org/wiki/Disciple_(Christianity)#Women_who_followed_Jesus
+11.  Numbers 22:26-27 MSG
+
+GOD’s angel blocked the way yet again—a very narrow passage this time; there was no getting through on the right or left. Seeing the angel, Balaam’s donkey sat down under him. Balaam lost his temper; he beat the donkey with his stick.
