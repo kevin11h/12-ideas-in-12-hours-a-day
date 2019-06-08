@@ -1357,6 +1357,12 @@ GOD’s angel blocked the way yet again—a very narrow passage this time; there
 7.  World Winery Tour
 8. World Travel and Trade Tour WT3
 9.  World Wonder Tour
-10.
-11.
-12.
+10.  Haiku Meme Generator
+11.  Haiku Parsimony Wisdom Pithy 
+12.  Laconic Lexicography 
+
+1.  Many Dates, One Time
+2.  Many Times
+3.  Times Tables (Space)
+4.
+5.
