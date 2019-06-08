@@ -1332,3 +1332,17 @@ For I am convinced that neither death nor life, neither angels nor demons, neith
 11.  Numbers 22:26-27 MSG
 
 GOD’s angel blocked the way yet again—a very narrow passage this time; there was no getting through on the right or left. Seeing the angel, Balaam’s donkey sat down under him. Balaam lost his temper; he beat the donkey with his stick.
+
+12.  Stanford hospital
+
+1.  Stanford Health
+2.  Palo Alto Health
+3.  Palo Alto Hospital
+4.  Caltech Hospital
+5.  Caltech Health
+6.  Caltech Medical Center
+7.  Pasadena Medical Center
+8.  Pasadena Hospital
+9.  Pasadena Health
+10.  Stanford Medical Center
+11.  Palo Alto Medical Center
