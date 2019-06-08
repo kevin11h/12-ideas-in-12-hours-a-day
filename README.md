@@ -1352,3 +1352,11 @@ GOD’s angel blocked the way yet again—a very narrow passage this time; there
 2.  https://en.wikipedia.org/wiki/5_Whys
 3.  https://en.wikipedia.org/wiki/Fan_Li
 4.  http://www.asiapacbooks.com/pdf/12rules_preview.pdf
+5.  World Travel and Trade Group  WT2G
+6.  World Antique Tour
+7.  World Winery Tour
+8. World Travel and Trade Tour WT3
+9.  World Wonder Tour
+10.
+11.
+12.
