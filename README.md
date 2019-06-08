@@ -1347,3 +1347,6 @@ GOD’s angel blocked the way yet again—a very narrow passage this time; there
 10.  Stanford Medical Center
 11.  Palo Alto Medical Center
 12.  https://en.wikipedia.org/wiki/5_Whys
+
+1.  Smart Bra.  Wunderbra(ssiere) Pocket Protector.  Hearth health monitor
+2.  https://en.wikipedia.org/wiki/5_Whys
