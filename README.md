@@ -1351,3 +1351,4 @@ GOD’s angel blocked the way yet again—a very narrow passage this time; there
 1.  Smart Bra.  Wunderbra(ssiere) Pocket Protector.  Hearth health monitor
 2.  https://en.wikipedia.org/wiki/5_Whys
 3.  https://en.wikipedia.org/wiki/Fan_Li
+4.  http://www.asiapacbooks.com/pdf/12rules_preview.pdf
