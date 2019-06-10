@@ -1372,3 +1372,6 @@ GOD’s angel blocked the way yet again—a very narrow passage this time; there
 9.  Planogram
 10.  Womansion (women mansion)
 11.  Timequity
+12.  American Feng Shui Consulting (High Rise Business)
+
+1.  Her Rise (High Rise)
