@@ -1364,5 +1364,9 @@ GOD’s angel blocked the way yet again—a very narrow passage this time; there
 1.  Many Dates, One Time
 2.  Many Times
 3.  Times Tables (Space)
-4.
-5.
+4.  Golf Stanford
+5.  Music Stanford
+6.  Guitar Stanford
+7.  Golf
+8.  Music
+9.  Planogram
