@@ -1375,3 +1375,4 @@ GOD’s angel blocked the way yet again—a very narrow passage this time; there
 12.  American Feng Shui Consulting (High Rise Business)
 
 1.  Her Rise (High Rise)
+2.  Switzerland Swiss Bank and Alchemy University
