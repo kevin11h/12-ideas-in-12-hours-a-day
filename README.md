@@ -1379,3 +1379,4 @@ GOD’s angel blocked the way yet again—a very narrow passage this time; there
 3.  Acai Cream shop op up store
 4.  Wealth of Women
 5.  VV
+6.  Vegas, LA, Hawaii, Taiwan, Hong Kong/Hainan, Shenzhen, Bhutan, kazakhstan, Moscow, St. Petersburg, Ukraine, Poland, Czech Rep., Estonia, Estonia ... Other good cities in Europe / transcaucasia ..., Scotland/ireland, toronto, nyc, florida, Vegas, LA
