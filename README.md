@@ -1383,3 +1383,6 @@ GOD’s angel blocked the way yet again—a very narrow passage this time; there
 7.  Specification Documentations List
 8.  Asana Slack Team Tracker + train
 9.  Book Wagon + Cart
+10.  https://en.wikipedia.org/wiki/Lanchester%27s_laws
+11. Startup Sustainability
+12.  
