@@ -1385,4 +1385,10 @@ GOD’s angel blocked the way yet again—a very narrow passage this time; there
 9.  Book Wagon + Cart
 10.  https://en.wikipedia.org/wiki/Lanchester%27s_laws
 11. Startup Sustainability
-12.  
+12.   Regionality
+
+1.  Regional
+2.  Regality
+3.  Regal
+4.  Regent
+5.
