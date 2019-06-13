@@ -1397,7 +1397,7 @@ GOD’s angel blocked the way yet again—a very narrow passage this time; there
 https://biblehub.com/philippians/4-19.htm
 New Living Translation And this same God who takes care of me will supply all your needs from his glorious riches, which have been given to us in Christ Jesus.
 8.  Allēlouia (in the Septuagint)
-9.
+9.  ἀλληλούϊα
 10.
 11.
 12.
