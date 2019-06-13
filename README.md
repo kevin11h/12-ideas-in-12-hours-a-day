@@ -1398,6 +1398,6 @@ https://biblehub.com/philippians/4-19.htm
 New Living Translation And this same God who takes care of me will supply all your needs from his glorious riches, which have been given to us in Christ Jesus.
 8.  Allēlouia (in the Septuagint)
 9.  ἀλληλούϊα
-10.
+10.  https://www.google.com/earth/outreach/learn/visualize-your-data-on-a-custom-map-using-google-my-maps/
 11.
 12.
