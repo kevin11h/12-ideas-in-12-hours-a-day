@@ -1393,7 +1393,9 @@ GOD’s angel blocked the way yet again—a very narrow passage this time; there
 4.  Regent
 5.  Instgram + Tumblr + Food Bloggers + Chrome Extension + Yelp Review ->  Food Picture Image ->  Caviar + DoorDash Order
 6.  Humble Heart Helps
-7.
+7.  Philippians 4:19 And my God will supply all your needs according to ...
+https://biblehub.com/philippians/4-19.htm
+New Living Translation And this same God who takes care of me will supply all your needs from his glorious riches, which have been given to us in Christ Jesus.
 8.
 9.
 10.
