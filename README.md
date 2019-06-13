@@ -1399,5 +1399,10 @@ New Living Translation And this same God who takes care of me will supply all yo
 8.  Allēlouia (in the Septuagint)
 9.  ἀλληλούϊα
 10.  https://www.google.com/earth/outreach/learn/visualize-your-data-on-a-custom-map-using-google-my-maps/
-11.
-12.
+11.  Arbitrageur
+12.  Native = Indigenous American Men WF  IAMWF
+
+1.   Glasses Crystal Asian AM WF x GAMWF, CAMWF
+2.  Books, Librarian Reader  B (AMxWF) BAMWF
+3.  Batman University, Course Listing.  Student Hero training, Foresnics Science
+4.
