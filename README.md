@@ -1392,4 +1392,10 @@ GOD’s angel blocked the way yet again—a very narrow passage this time; there
 3.  Regal
 4.  Regent
 5.  Instgram + Tumblr + Food Bloggers + Chrome Extension + Yelp Review ->  Food Picture Image ->  Caviar + DoorDash Order
-6. 
+6.  Humble Heart Helps
+7.
+8.
+9.
+10.
+11.
+12.
