@@ -1406,8 +1406,11 @@ New Living Translation And this same God who takes care of me will supply all yo
 2.  Books, Librarian Reader  B (AMxWF) BAMWF
 3.  Batman University, Course Listing.  Student Hero training, Foresnics Science
 4.  Schedule, Time Management
-5.  World Missionary Tour
+5.  World Missionary Tour (Churches)
 6.  World Trade & Travel Group
 7.  World Banking Summit
 8.  World Finance Tour
-9.  
+9.  World Beach Tour
+10. World Seashore Tour
+11.  World Golf Tour
+12.  World Cathedral Tour
