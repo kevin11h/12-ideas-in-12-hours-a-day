@@ -1417,3 +1417,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 
 
 1.  Amethys Venture Capital
+2.  Game Streaming Market > Netflix Hollywood
+3. Videogames Comics clothes tshirts
+4. Gamer Fan Clothes
+5. Game cheerleaders
