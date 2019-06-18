@@ -1414,3 +1414,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 10. World Seashore Tour
 11.  World Golf Tour
 12.  World Cathedral Tour
+
+
+1.  Amethys Venture Capital
