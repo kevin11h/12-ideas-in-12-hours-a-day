@@ -1424,4 +1424,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 6.  World Luxury Brand Tour
 7.  World Jet Setters
 8.  VIP World Party Tour
-9.  
+9.    JetSet.tv
