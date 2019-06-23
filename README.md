@@ -1428,3 +1428,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 10.  World Math Tour
 11.  World Architecture Tour
 12.  paranormal Pr0n books women
+
+1.  Mature Movie Studio
+2.  Mature Magazine Monthly Subscriptions Readership
+3.  Tiply Tipster - Crypto QR Tips
