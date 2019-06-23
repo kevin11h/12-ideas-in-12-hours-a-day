@@ -1432,3 +1432,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  Mature Movie Studio
 2.  Mature Magazine Monthly Subscriptions Readership
 3.  Tiply Tipster - Crypto QR Tips
+4.  BOTM Calendar Counter Kundalini Mobile Product
+5.  Sapio Dating Intelligence pr0n
