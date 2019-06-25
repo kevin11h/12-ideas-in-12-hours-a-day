@@ -1477,6 +1477,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 7.  Blue Bonds.  Clean Air Wind Energy Crypto
 8.  Stanford Health Care
 9.  https://angel.co/palo-alto
-10.
+10.  https://www.gotquestions.org/Christian-work-ethic.html
 11.
 12.
