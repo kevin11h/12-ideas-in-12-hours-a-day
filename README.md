@@ -1460,3 +1460,14 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.  Bruce Lee Inspirational Quotes Daily
 4.  Bruce Lee Daily Motivational
 5.  Bruce Lee Daily Inspirational
+6.  Crypto Clean Air
+7.  Air Coin
+8.  Coinity Ventures
+9.  Lightwater VC
+10.  LiteWater VC
+11.  Mercurium VC
+12.  Aether VC
+
+1.  Aerys VC
+2.
+3.
