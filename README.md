@@ -1475,4 +1475,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  Birthrite - Babychain, Decentralized Birth Certificate Free Babies.  No Nation, 
 6.  Carbon Currency. Green Bonds  
 7.  Blue Bonds.  Clean Air Wind Energy Crypto
-8.
+8.  Stanford Health Care
+9.  https://angel.co/palo-alto
+10.
+11.
+12.
