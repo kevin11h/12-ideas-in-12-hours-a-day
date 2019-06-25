@@ -1449,5 +1449,10 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  Study Supply Sponsor
 6.  Snack Sponsor
 7.  If you can't spot the sucker in the first half hour at the table, then you are the sucker
-8.
-9.  
+8.  https://www.quora.com/Whats-the-difference-between-a-horse-colt-pony-mare-stallion-and-a-foal
+9.  https://en.wikipedia.org/wiki/Seven_Archangels
+10.  Food Diary
+11. Nutri Coin
+12.  Recipe ->  Receipt
+
+1.
