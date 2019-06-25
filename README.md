@@ -1469,5 +1469,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 12.  Aether VC
 
 1.  Aerys VC
-2.
-3.
+2.  Birthright - Decentralized Blockchain Birth Certificates
+3.  Capital - Acutalized future flow of income 
+4.  Wealth - Desire for Liquidity
+5.  
