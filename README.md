@@ -1472,4 +1472,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 2.  Birthright - Decentralized Blockchain Birth Certificates
 3.  Capital - Acutalized future flow of income 
 4.  Wealth - Desire for Liquidity
-5.  
+5.  Birthrite - Babychain, Decentralized Birth Certificate Free Babies.  No Nation, 
+6.  
