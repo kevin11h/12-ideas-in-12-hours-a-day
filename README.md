@@ -1448,4 +1448,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 4.  Notebook Sponsor
 5.  Study Supply Sponsor
 6.  Snack Sponsor
-
+7.  If you can't spot the sucker in the first half hour at the table, then you are the sucker
+8.
+9.  
