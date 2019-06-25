@@ -1439,5 +1439,13 @@ New Living Translation And this same God who takes care of me will supply all yo
 8.  Timecheck ~ Time Credit Late ~ blockchain
 9.  Blockchain / Bitcoin scholarships ask
 10. I Ching
-11.
-12.
+11.  Pre - App Pre-Signup
+12.  Pre-Nupt or Bankrupt
+
+1.  Hackathon Organizer
+2. All or nothing
+3.  Pokerface.  Play poker
+4.  Notebook Sponsor
+5.  Study Supply Sponsor
+6.  Snack Sponsor
+
