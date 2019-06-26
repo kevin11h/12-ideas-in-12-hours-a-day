@@ -1489,9 +1489,9 @@ New Living Translation And this same God who takes care of me will supply all yo
 6.  Pre-mail - Preview Email - Coupons Subcriptions Promotions Pay Per View Inbox
 7.  http://changingminds.org/disciplines/negotiation/tactics/escalating_demand.htm
 8.  2 Programming Problems/Questions Per Day
-9.  
-10.
-11.
+9.  http://changingminds.org/disciplines/negotiation/tactics/call_girl.htm
+10.  http://changingminds.org/disciplines/negotiation/tactics/tactics.htm
+11.  http://changingminds.org/principles/exchange.htm
 12.
 
 1.
