@@ -1494,6 +1494,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 11.  http://changingminds.org/principles/exchange.htm
 12.  99% Noise No Non sense
 
-1.
-2.
-3.
+1.  Heart <3 of a Saint
+2.  Body of Warrior
+3.  Mind of Philosopher
