@@ -1492,7 +1492,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.  http://changingminds.org/disciplines/negotiation/tactics/call_girl.htm
 10.  http://changingminds.org/disciplines/negotiation/tactics/tactics.htm
 11.  http://changingminds.org/principles/exchange.htm
-12.
+12.  99% Noise No Non sense
 
 1.
 2.
