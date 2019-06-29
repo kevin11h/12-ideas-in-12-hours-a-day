@@ -1514,3 +1514,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  Nvidia Stock
 6.  (fire) Alarm App
 7. https://www.gotquestions.org/why-does-God-test-us.html
+8.  knowledge arks
+9.  KnowledgeVaults of Civilization
+10. Essential Wisdom
+11.  Eseential Wysdom
