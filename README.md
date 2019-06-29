@@ -1501,3 +1501,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  Stop feeling sorry
 6.  Make Money not excuses
 7.  Alchemy Adultery Idolatery
+8.  Make Magic
+9.  Make Meaning
+10.  Make Mantra
