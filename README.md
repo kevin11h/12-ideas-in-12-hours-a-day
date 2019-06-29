@@ -1513,4 +1513,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 4.  NantX Stock
 5.  Nvidia Stock
 6.  (fire) Alarm App
-7. 
+7. https://www.gotquestions.org/why-does-God-test-us.html
