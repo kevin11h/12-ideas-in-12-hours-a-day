@@ -1517,4 +1517,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 8.  knowledge arks
 9.  KnowledgeVaults of Civilization
 10. Essential Wisdom
-11.  Eseential Wysdom
+11.  Essential Wysdom
+12.  Cold Calling  https://www.briantracy.com/blog/sales-success/7-cold-calling-tips-that-will-yield-greater-returns/
