@@ -1497,3 +1497,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  Heart <3 of a Saint
 2.  Body of Warrior
 3.  Mind of Philosopher
+4.  Stope making excuses
+5.  Stop feeling sorry
+6.  Make Money not excuses
+7.  Alchemy Adultery Idolatery
