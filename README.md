@@ -1504,3 +1504,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 8.  Make Magic
 9.  Make Meaning
 10.  Make Mantra
+11.  Action step: Find a way to earn an extra $150-$200 a month
+12.  [Action step: Find a way to earn an extra $150-$200 a month](https://www.richdad.com/how-to-get-out-of-credit-card-debt)
