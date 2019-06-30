@@ -1528,3 +1528,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 6.  Why Water Fall Feng Shui ?
 7.  Financial Independence
 8.  Financial Freedom Formula F3 book
+9.  Put Pride Aside
