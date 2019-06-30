@@ -1529,3 +1529,10 @@ New Living Translation And this same God who takes care of me will supply all yo
 7.  Financial Independence
 8.  Financial Freedom Formula F3 book
 9.  Put Pride Aside
+10. World Golf Club
+11.  World Golf Tour
+12. World Poker Tour
+
+1.  World Poker Club
+2.  App Design
+3.  Strategic Value Investing
