@@ -1536,3 +1536,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  World Poker Club
 2.  App Design
 3.  Strategic Value Investing
+4.  Steve Star STPeach 
+5.  Leland Stanford Wong L2
+6.
