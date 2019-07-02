@@ -1544,8 +1544,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.  Food.info - Recipe sharing info Image processing Recognition Recipe App
 10. Recipe Recognition
 11. Gaming Twitch - Digital Collectible Items
-12.
+12. $KARET Measure Gold Purity Currency Measure of Gold
 
-1.
-2.
+1.  How to measure Precious minerals metals value?
+2.  $METAL $MEASURE $METIS
 3. 
