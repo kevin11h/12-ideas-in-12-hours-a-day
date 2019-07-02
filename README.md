@@ -1551,3 +1551,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.  Defense Loan . Treasury Usury
 4.  Life.bank Life Insurance blockchain bank
 5.  Medicare Debt Crisis
+6. https://www.onepagezen.com/make-money-on-youtube/
