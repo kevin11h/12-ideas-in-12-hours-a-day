@@ -1550,4 +1550,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 2.  $METAL $MEASURE $METIS
 3.  Defense Loan . Treasury Usury
 4.  Life.bank Life Insurance blockchain bank
-5.  
+5.  Medicare Debt Crisis
