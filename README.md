@@ -1548,4 +1548,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 
 1.  How to measure Precious minerals metals value?
 2.  $METAL $MEASURE $METIS
-3. 
+3.  Defense Loan . Treasury Usury
+4.  Life.bank Life Insurance blockchain bank
+5.  
