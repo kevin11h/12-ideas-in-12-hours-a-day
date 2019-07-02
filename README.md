@@ -1540,3 +1540,12 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  Leland Stanford Wong L2
 6.  https://www.gotquestions.org/YHWH-tetragrammaton.html
 7.  en.wikipedia.org/wiki/Tetragrammaton
+8.  Coincept - Archetype - Financial instrument design - Prototype - Patent Blockchain
+9.  Food.info - Recipe sharing info Image processing Recognition Recipe App
+10. Recipe Recognition
+11. Gaming Twitch - Digital Collectible Items
+12.
+
+1.
+2.
+3. 
