@@ -1541,7 +1541,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 6.  https://www.gotquestions.org/YHWH-tetragrammaton.html
 7.  en.wikipedia.org/wiki/Tetragrammaton
 8.  Coincept - Archetype - Financial instrument design - Prototype - Patent Blockchain
-9.  Food.info - Recipe sharing info Image processing Recognition Recipe App
+9.  Food.info - Recipe sharing info Image processing Recognition Recipe App.  Gold.info
 10. Recipe Recognition
 11. Gaming Twitch - Digital Collectible Items
 12. $KARET Measure Gold Purity Currency Measure of Gold
@@ -1552,3 +1552,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 4.  Life.bank Life Insurance blockchain bank
 5.  Medicare Debt Crisis
 6. https://www.onepagezen.com/make-money-on-youtube/
+7.  Gold.info
