@@ -1554,3 +1554,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 6. https://www.onepagezen.com/make-money-on-youtube/
 7.  Gold.info
 8.  11But after the three and a half days, the breath of life from God entered the two witnesses, and they stood on their feet, and great fear fell upon those who saw them. Revelation 11:11
+9.  Metals.info - accurate precise mathematical quantitative information of gold / silver / precious metals markets
+10.  bond - bitocoin - gold tether
+11.  Metals.info -> blockchain recording
