@@ -1557,3 +1557,14 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.  Metals.info - accurate precise mathematical quantitative information of gold / silver / precious metals markets
 10.  bond - bitocoin - gold tether
 11.  Metals.info -> blockchain recording
+12.  https://en.wikipedia.org/wiki/Khagan
+
+1.  Magistrate
+2.  Bees.world
+3.  Bees.info
+4.  Pollen Protocol - Beekeeper
+5.  Hive mind
+6.  Honey Food Commodity Health Benefits
+7.  Global Hive Nodes Honey Mining
+8.  Honey = Real Gold
+9.  David Suzuki 5 years
