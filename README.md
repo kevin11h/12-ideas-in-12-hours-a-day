@@ -1568,3 +1568,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 7.  Global Hive Nodes Honey Mining
 8.  Honey = Real Gold
 9.  David Suzuki 5 years
+10.  Maegistar degree
+11.  Office of the Maegistar
