@@ -1580,3 +1580,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 6.  play poker
 7.  expand vocabulary 5,000 words / 2e6
 8.  know your options
+9.  move -> motivation, decide -> determination
