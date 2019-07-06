@@ -1578,3 +1578,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 4.  https://www.biblestudy.org/maps/new-testament-churches/western-asia-minor.jpg
 5.  flashcards
 6.  play poker
+7.  expand vocabulary 5,000 words / 2e6
+8.  know your options
