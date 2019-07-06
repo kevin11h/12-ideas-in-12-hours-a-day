@@ -1576,4 +1576,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 2.  https://www.allaboutjesuschrist.org/witness-to-the-resurrection-faq.htm
 3.  Life, Death and Resurrection 
 4.  https://www.biblestudy.org/maps/new-testament-churches/western-asia-minor.jpg
-5.
+5.  flashcards
+6.  play poker
