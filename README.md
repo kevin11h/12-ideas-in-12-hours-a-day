@@ -1586,3 +1586,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 12.  Recurrent Dream
 
 1.  Living in the moment
+2.  https://www.ask-angels.com/spiritual-guidance/hummingbird-meaning/
