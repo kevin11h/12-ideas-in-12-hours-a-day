@@ -1584,3 +1584,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 10.  Hidden Recurrence
 11.  Recurrent
 12.  Recurrent Dream
+
+1.  Living in the moment
