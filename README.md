@@ -1589,3 +1589,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 2.  https://www.ask-angels.com/spiritual-guidance/hummingbird-meaning/
 3.  Healthy Head, Humble Heart, Helping Hands
 4.  Confucian Study System Values Principles Merit - Christian Work Ethic
+5.  Harmoney
+6.  Senex - sagex sagexchange
