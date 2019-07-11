@@ -1591,3 +1591,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 4.  Confucian Study System Values Principles Merit - Christian Work Ethic
 5.  Harmoney
 6.  Senex - sagex sagexchange
+7.  Smart living - make living investment
+8.  Health - Energy
