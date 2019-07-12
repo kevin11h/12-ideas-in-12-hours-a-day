@@ -1599,3 +1599,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 12.  Aqua Niagara Falls CleanEnergy Cleantech Cryptocurrency
 
 1.  Water Energy Cleantech Commodity Cryptocurrency
+2.  Collect Emails Use Github API
