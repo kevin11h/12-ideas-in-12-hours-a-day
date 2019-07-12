@@ -1594,3 +1594,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 7.  Smart living - make living investment
 8.  Health - Energy
 9.  KeyStone
+10.  WaterFall Fengshui Magic
+11.  Aqua Agua Water Purity Token
+12.  Aqua Niagara Falls CleanEnergy Cleantech Cryptocurrency
+
+1.  Water Energy Cleantech Commodity Cryptocurrency
