@@ -1614,5 +1614,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  Bali beach babes
 2.  Cashflow Coinsultants
 3.  Hope Hats.  Helmets of Hope.  Custom verse shirts / verse caps.  Shopify?
-4.
+4.  Christone Soup
 5.
+6.
+7.
