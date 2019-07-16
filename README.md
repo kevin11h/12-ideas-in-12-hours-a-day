@@ -1615,6 +1615,11 @@ New Living Translation And this same God who takes care of me will supply all yo
 2.  Cashflow Coinsultants
 3.  Hope Hats.  Helmets of Hope.  Custom verse shirts / verse caps.  Shopify?
 4.  Christone Soup
-5.
-6.
-7.
+5.  StarSeed
+6.  StarKey
+7.  StarStone
+8.  KeyStone
+9.
+10.
+11.
+12.
