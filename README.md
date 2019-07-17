@@ -1588,7 +1588,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  Living in the moment
 2.  https://www.ask-angels.com/spiritual-guidance/hummingbird-meaning/
 3.  Healthy Head, Humble Heart, Helping Hands
-4.  Confucian Study System Values Principles Merit - Christian Work Ethic
+4.  Confucian Study System Values Principles Merit - Christian Work Ethic  - Christian Character Christian Conduct
 5.  Harmoney
 6.  Senex - sagex sagexchange
 7.  Smart living - make living investment
@@ -1619,7 +1619,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 6.  StarKey
 7.  StarStone
 8.  KeyStone
-9.
+9.  Christ AMWF
 10.
 11.
 12.
