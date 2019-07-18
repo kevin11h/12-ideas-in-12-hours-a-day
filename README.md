@@ -1620,6 +1620,11 @@ New Living Translation And this same God who takes care of me will supply all yo
 7.  StarStone
 8.  KeyStone
 9.  Christ AMWF
-10.
-11.
-12.
+10. Discipline + Diligence >> Distraction
+11.  Translate Almonds GetRich Formula Wealth Guide into Chinese, Korean, Japanese, Tagalog, Russian
+12.  99% Nonsense thoughts, ANTS, automatic positive thoughts
+
+1.
+2.
+3.
+
