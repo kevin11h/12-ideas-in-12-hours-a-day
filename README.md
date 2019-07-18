@@ -1627,4 +1627,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  https://zhuanlan.zhihu.com/p/32123306
 2.  https://www.douban.com/note/656410591/
 3.  APT Automatic Positive Thoughts, APT. Apartment of Positivty
-
+4.  life insurance vs pension crypto fund 
+5.  https://en.wikipedia.org/wiki/Life_insurance
