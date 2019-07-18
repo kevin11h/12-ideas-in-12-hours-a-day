@@ -1630,3 +1630,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 4.  life insurance vs pension crypto fund 
 5.  https://en.wikipedia.org/wiki/Life_insurance
 6.  Cryptonomicon CESC VC Capital Lexicon
+7.  IAMWF  Indiginous American Man White Female
