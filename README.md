@@ -1635,4 +1635,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.  digital distractions
 10. Digital Distractors, Diligaence > Distraction
 11.  AM Wealth Guide Booklet E-book
-12.
+12.  Discipline + Diligence > Distractions
+
+1.  12 Discipl(in)es + Diligence > digital distraction
+2.  discipline, diligence, discernment, discretion, direction, dvinity
