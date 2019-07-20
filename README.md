@@ -1641,3 +1641,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 2.  discipline, diligence, discernment, discretion, direction, divinity
 3.  provide positive passive cash flow, positive value add, positive energy, positivity
 4. https://www.richdad.com/entrepreneurial-spirit
+5.  Christ's Financial Wisdom
+6.  Wisdom Financial Parables Principles Christ
+7.  Jobs of Jesus
