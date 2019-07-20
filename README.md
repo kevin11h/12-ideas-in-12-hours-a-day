@@ -1639,3 +1639,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 
 1.  12 Discipl(in)es + Diligence > digital distraction
 2.  discipline, diligence, discernment, discretion, direction, divinity
+3.  provide positive passive cash flow, positive value add, positive energy, positivity
+4. https://www.richdad.com/entrepreneurial-spirit
