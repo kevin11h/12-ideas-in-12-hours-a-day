@@ -1631,3 +1631,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  https://en.wikipedia.org/wiki/Life_insurance
 6.  Cryptonomicon CESC VC Capital Lexicon
 7.  IAMWF  Indiginous American Man White Female
+8. https://www.gotquestions.org/Bible-solitude.html
+9.  digital distractions
+10. Digital Distractors, Diligaence > Distraction
+11.  AM Wealth Guide Booklet E-book
+12.
