@@ -1638,4 +1638,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 12.  Discipline + Diligence > Distractions
 
 1.  12 Discipl(in)es + Diligence > digital distraction
-2.  discipline, diligence, discernment, discretion, direction, dvinity
+2.  discipline, diligence, discernment, discretion, direction, divinity
