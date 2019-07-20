@@ -1644,4 +1644,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  Christ's Financial Wisdom
 6.  Wisdom Financial Parables Principles Christ
 7.  Jobs of Jesus: Christian Work Book
-8. 
+8.  Hand Heart Head Health
+9.  Hand Products (Nerve cells) - Hands -> Visibility
+10. Hand Hi-Volume Products
+11.
+12.
