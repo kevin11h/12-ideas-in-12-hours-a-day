@@ -1647,5 +1647,15 @@ New Living Translation And this same God who takes care of me will supply all yo
 8.  Hand Heart Head Health
 9.  Hand Products (Nerve cells) - Hands -> Visibility
 10. Hand Hi-Volume Products
-11.
-12.
+11. Hand.store
+12.  Bookbabes.store e-booklets & web zines stores
+
+1.  Money = Your Resource Relationship
+2. Discover + Discipline + Diligence + Discernment + Discretion > digital distractions, disturbances, disobedience
+3.  AMXF movies self hypnosis hypgnosis
+4. Prognosis
+5.  Preventionary > Interventionary
+6.  Cointervene
+7.  Coinheritance
+8. Coinsider.news Coinsider.forum
+9. 
