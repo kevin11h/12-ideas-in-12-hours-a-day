@@ -1658,4 +1658,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 6.  Cointervene
 7.  Coinheritance
 8. Coinsider.news Coinsider.forum
-9. 
+9. E-book writing
+10.
+11.
+12.
