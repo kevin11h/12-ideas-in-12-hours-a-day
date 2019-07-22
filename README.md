@@ -1700,3 +1700,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.  World ArchitectureTour
 10.  World XX Tour
 11.  World XYZ Tour
+12.  Hustle Hung
+
+1.  Hung Hustler
