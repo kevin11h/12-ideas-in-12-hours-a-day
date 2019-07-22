@@ -1707,3 +1707,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.  500 Pages Daily  
 4.  Daily 500 Pages
 5. Amxf Amwf.movies
+6.  Path of Peace
+7.  Focus Flow
+8.AM Wealth Guide Booklet E-book Double Side Language Translations
+9.  Language is the limits of your world
+10. Language limits the understanding of our world
