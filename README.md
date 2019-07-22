@@ -1712,3 +1712,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 8.AM Wealth Guide Booklet E-book Double Side Language Translations
 9.  Language is the limits of your world
 10. Language limits the understanding of our world
+11. https://www.youtube.com/watch?v=0FZenwmYgOg
+12. Decision - Make a cision ,  Cut, Action
+
+1. Commitment means commit time
