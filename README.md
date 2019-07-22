@@ -1685,3 +1685,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 7.  Miracle Mind Might
 8.  Motif Motive Motivation Momentum
 9.  Questology
+10.  https://www.gotquestions.org/Christian-proselytization.html
+11. Make it up Fabrication
+12. Fabrication of experiences
+
+1. Experiential Fabrication
