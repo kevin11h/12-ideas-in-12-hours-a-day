@@ -1666,3 +1666,22 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  Alarm Clock with Morning Music , Data <- Youtube Play List of Songs
 2.  Sexy = Self-Control
 3.  Self-Control is sexy
+4.  https://www.imdb.com/list/ls005535336/
+5.  Nothing Normal #nono
+6. hackathonite
+7.  Miracology (study of miracles)
+8.  Flow & Focus
+9.  Ear Earth, Hear Heaven
+10.  Hear, Heart, Head, Heal, Heaven
+11.  Steemit plugin tooltip browser extension to "broadcaster" social media posts
+12. Alarm Music(al) Musical
+
+1.  Longevity Learn Live Love Laugh
+2.  automated income - practice passive programming #P3 #positivity #passivity 
+3.  Coincome
+4.  Coinvoice
+5. study learn investing #coinvest #coinvestor.io
+6.  Shaddai ~ sufficient
+7.  Miracle Mind Might
+8.  Motif Motive Motivation Momentum
+9.  Questology
