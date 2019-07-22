@@ -1695,3 +1695,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 4.  Coinsights
 5.  Coincharts
 6. River of Life
+7.  World PokerTour
+8.  World Church Tour
+9.  World ArchitectureTour
+10.  World XX Tour
+11.  World XYZ Tour
