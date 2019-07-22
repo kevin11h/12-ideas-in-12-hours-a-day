@@ -1706,3 +1706,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 2.  Consistency Calendar
 3.  500 Pages Daily  
 4.  Daily 500 Pages
+5. Amxf Amwf.movies
