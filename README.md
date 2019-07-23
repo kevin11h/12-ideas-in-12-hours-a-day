@@ -1717,3 +1717,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 
 1. Commitment means commit time
 2. https://www.gotquestions.org/Melchizedek.html
+3.  https://overviewbible.com/hebrews/
