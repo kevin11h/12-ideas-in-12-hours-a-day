@@ -1720,3 +1720,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.  https://overviewbible.com/hebrews/
 4.  My life is my message
 5.  Re-Christian: Repent, Regret, Remorse, Reconsider, Reject, Reconcile, Revise / Revision, Reinvent, Receive, Relief (Belief/live), Rejoice, Restart, Renew, Reward, Revelations
+6. https://laughingatnarcs.com/index.php/2019/07/17/when-a-narcissist-feels-defeated-let-the-narcissists-have-the-battles-win-the-war/
+7. Paper Trading Points <~ Crypto
