@@ -567,7 +567,7 @@ Legal Business Incorporation Arbitrage.  Travel and save
 6.  Future Cities Business Travel Rating / Ranking
 7.  Future Tech Smart Cities Advanced Societies Critics Review
 8.  Preview Review
-9.  Repent, Regret, Remorse, Reconsider, Reconcile, Revise / Revision, Reinvent, Receive, Relief (Belief/live), Rejoice, Restart, Renew, Reward
+9.  Repent, Regret, Remorse, Reconsider, Reject, Reconcile, Revise / Revision, Reinvent, Receive, Relief (Belief/live), Rejoice, Restart, Renew, Reward, Revelations
 10.  Immorality / Immortality, Morality / Mortality
 11. Green cities / Green communities Real Estate Magazine (alternative living)
 12.  Mission + Mantra + Meaning 3 Ms M's
@@ -1718,3 +1718,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 1. Commitment means commit time
 2. https://www.gotquestions.org/Melchizedek.html
 3.  https://overviewbible.com/hebrews/
+4.  My life is my message
+5.  Re-Christian: Repent, Regret, Remorse, Reconsider, Reject, Reconcile, Revise / Revision, Reinvent, Receive, Relief (Belief/live), Rejoice, Restart, Renew, Reward, Revelations
