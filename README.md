@@ -1731,3 +1731,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 1. financial alchemy.  financial artifice
 2.  artifice (artefact  ark patents concepts financial instruments coinages)
 3. https://laughingatnarcs.com/index.php/2019/07/23/25-self-forgiveness-quotes-to-help-you-heal/
+4.  Artifact Assets Digital Blockchain All-in-one assets arts, patents, concepts, financial instruments, contracts, art contracts, blueprints, prototypes, inventions, credits  Archetype Arketype
