@@ -1722,3 +1722,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  Re-Christian: Repent, Regret, Remorse, Reconsider, Reject, Reconcile, Revise / Revision, Reinvent, Receive, Relief (Belief/live), Rejoice, Restart, Renew, Reward, Revelations
 6. https://laughingatnarcs.com/index.php/2019/07/17/when-a-narcissist-feels-defeated-let-the-narcissists-have-the-battles-win-the-war/
 7. Paper Trading Points <~ Crypto
+8.  NYC, London Financial Centers Creation of FAKE Paper "money"
+9. Financial instrumentation
+10.  Financial Foundations
+11. Life.time = Life insurance + Time Banking <~ Crypto hedgefund hybrid
+12.
