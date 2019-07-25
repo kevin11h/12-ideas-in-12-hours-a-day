@@ -1731,7 +1731,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 1. financial alchemy.  financial artifice
 2.  artifice (artefact  ark patents concepts financial instruments coinages)
 3. https://laughingatnarcs.com/index.php/2019/07/23/25-self-forgiveness-quotes-to-help-you-heal/
-4.  Artifact Assets Digital Blockchain All-in-one assets arts, patents, concepts, financial instruments, contracts, art contracts, blueprints, prototypes, inventions, artistic license, credits, articles in academia, plant patents, trademarks, watermarks, patent protection, abstract assets digital item back end exchange  Archetype Arketype Ark Knowledge Vault Arte.Fact Bank
+4.  Artifact Assets Digital Blockchain All-in-one assets arts, patents, concepts, financial instruments, contracts, art contracts, blueprints, prototypes, inventions, artistic license, credits, articles in academia, plant patents, trademarks, watermarks, patent protection, abstract assets digital item back end exchange  Archetype Arketype Ark Knowledge Vault Arte.Fact Bank  Coinventory Noah's Ark Seed Vault Plant Patents Coincepts Coinstruments
 5. The 2 Day MBA
 6. MMBA  Minimal Master's Business Administration MMBA
 7. https://www.gotquestions.org/God-different.html
@@ -1740,6 +1740,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 11.  Bitflow  Bit.flow Cryptocurrency Cash Flow
 12. Pro Rata  Pro Forma
 
-1. 
+1. Coinventory Coinvent
 2.
 3.
