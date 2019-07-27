@@ -1744,3 +1744,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 2.  Accreditation Blockchain <- Certificate Investing License on Blockchain for Qualified Sophisticated Investors
 3.  https://www.gotquestions.org/Jesus-siblings.html
 4. https://en.wikipedia.org/wiki/Brothers_of_Jesus
+5.  copper coin Copper Coin fork Raspberry Pi of Crypto Copper Crypto Cu Industrial use case
