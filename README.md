@@ -1754,3 +1754,18 @@ New Living Translation And this same God who takes care of me will supply all yo
 12. Koan  公案  口安
 
 1.  Try.  { Start, Step } Success Secret
+2.  Copy Wrighted.  Copy Right Copy Write <~ high leverage skill, scalable
+3.  Coinsultant.  Retainer?
+4.  Digital Consultant.  (digital) Social Media Marketing
+5.  Recurring Revenue Model
+6.  Is it serve well?
+7.  Does it serve us?
+8.  (video, media, print) Recording = Recurring Revenue
+9.   artifice (artefact  ark patents concepts financial instruments coinages IP intellectual property)
+10.  Copy <~ Communication, Consult Close Coinage, Combine
+11.  Communication...... => Wealth
+12.  Co Co Co
+
+1.  Copy = Repeat, Replicate = Reproducability (s(c)ale) Copywrighted Copywrite
+2.
+3.
