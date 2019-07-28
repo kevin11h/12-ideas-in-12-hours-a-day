@@ -1752,3 +1752,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 10.  Terms . Word. Meaning
 11.  Term Time
 12. Koan  公案  口安
+
+1.  Try.  { Start, Step } Success Secret
