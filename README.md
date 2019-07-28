@@ -1771,3 +1771,10 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.  Re Re Re Re Re.. (renew repeat retain return recurr (revenue) reproducability)
 4.  Fear + Failure ~> Friends
 5.  Manage Expectations
+6.  OPT OPN OPM 
+7.
+8.
+9.
+10.
+11.
+12.
