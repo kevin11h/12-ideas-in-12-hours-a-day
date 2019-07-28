@@ -1764,8 +1764,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.   artifice (artefact  ark patents concepts financial instruments coinages IP intellectual property)
 10.  Copy <~ Communication, Consult Close Coinage, Combine
 11.  Communication...... => Wealth
-12.  Co Co Co
+12.  Co Co Co (Copy ContentCreate Coinage)
 
 1.  Copy = Repeat, Replicate = Reproducability (s(c)ale) Copywrighted Copywrite
-2.
-3.
+2.  Co Co Co (Copy Communicate ContentCreate Coinage corporation commodity coinfound)
+3.  Re Re Re Re Re.. (renew repeat retain return recurr (revenue) reproducability)
