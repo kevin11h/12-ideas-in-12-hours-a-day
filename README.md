@@ -1772,7 +1772,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 4.  Fear + Failure ~> Friends
 5.  Manage Expectations
 6.  OPT OPN OPM 
-7.
+7.  亿 ST 1e9
 8.
 9.
 10.
