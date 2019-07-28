@@ -1747,5 +1747,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  copper coin Copper Coin fork Raspberry Pi of Crypto Copper Crypto Cu Penny Crypto Stability Industrial use case
 6.  Errant.list listings, postings, tasks, jobs, 55+er, products, housing, services, items, ideas Craiglist Crypto currency Marketplace
 7.  Senior jobs for bitcoin  Grandma coin Grandma cryptocurrency
-8.  Thank You TRAIN-ing = Trials, Tests, Temptations
-9.  Good meaning
+8.  Thank You TRAIN-ing = Trials, Tests, Temptations (terms, time) <- TRUTH
+9.  Good Meaning, Good Morning
+10.  Terms . Word. Meaning
+11.  Term Time
+12. Koan  公案  口安
