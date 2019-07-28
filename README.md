@@ -1747,7 +1747,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  copper coin Copper Coin fork Raspberry Pi of Crypto Copper Crypto Cu Penny Crypto Stability Industrial use case
 6.  Errant.list listings, postings, tasks, jobs, 55+er, products, housing, services, items, ideas Craiglist Crypto currency Marketplace
 7.  Senior jobs for bitcoin  Grandma coin Grandma cryptocurrency
-8.  Thank You TRAIN-ing = Trials, Tests, Temptations (terms, time) <- TRUTH
+8.  Thank You TRUTH-TRAIN-ing = Trials, Tests, Tease, Temptations (terms, time tested) <- TRUTH Testaments Testamonial 
 9.  Good Meaning, Good Morning
 10.  Terms . Word. Meaning
 11.  Term Time
@@ -1761,7 +1761,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 6.  Is it serve well?
 7.  Does it serve us?
 8.  (video, media, print) Recording = Recurring Revenue
-9.   artifice (artefact  ark patents concepts financial instruments coinages IP intellectual property)
+9.   artifice (artefact  ark patents concepts financial instruments coinages IP intellectual property.  IP protection)
 10.  Copy <~ Communication, Consult Close Coinage, Combine
 11.  Communication...... => Wealth
 12.  Co Co Co (Copy ContentCreate Coinage)
@@ -1769,3 +1769,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  Copy = Repeat, Replicate = Reproducability (s(c)ale) Copywrighted Copywrite
 2.  Co Co Co (Copy Communicate ContentCreate Coinage corporation commodity coinfound)
 3.  Re Re Re Re Re.. (renew repeat retain return recurr (revenue) reproducability)
+4.  Fear + Failure ~> Friends
+5.  Manage Expectations
