@@ -1773,7 +1773,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  Manage Expectations
 6.  OPT OPN OPM 
 7.  亿 ST 1e9
-8.
+8. FaFaFaFa 发 发 发 Father Fast Failure 
 9.
 10.
 11.
