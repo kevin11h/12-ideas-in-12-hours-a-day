@@ -1777,4 +1777,12 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.  $2 Christone  Soup Rock enriches waters
 10. 日记杂志  
 11. 笔记本
-12.
+12. Times Tested
+
+1.  Time Tested Truth
+2.  Time Tested Wisdom
+3.  Time Transcendental Truth
+4.  Truth Transcends Time
+5.  Wisdom Transcends Time
+6.  Transcendal
+7. 
