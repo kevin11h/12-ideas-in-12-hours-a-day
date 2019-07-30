@@ -1785,4 +1785,9 @@ New Living Translation And this same God who takes care of me will supply all yo
 4.  Truth Transcends Time
 5.  Wisdom Transcends Time
 6.  Transcendal
-7. 
+7.  Cointacts Decentralized Rolodex Pay per interactions / create engagement Value Creation <~ Metcalfe's Law n^2 
+8.  World Accelerators Tour
+9.  Accelerator.list <~ Angel.list subset
+10.
+11.
+12.
