@@ -1788,6 +1788,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 7.  Cointacts Decentralized Rolodex Pay per interactions / create engagement Value Creation <~ Metcalfe's Law n^2 
 8.  World Accelerators Tour
 9.  Accelerator.list <~ Angel.list subset
-10.
+10. https://www.gotquestions.org/guilt-dealing.html
 11.
 12.
