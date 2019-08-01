@@ -1793,4 +1793,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 12. Wikipedia autogen book Autogenerator Wiki Book
 
 1.  AI Autogenerate & synethsize wiki books e books let
-2. 
+2.  Directions + Discovery + Discipline + Diligence + Discernment + Discretion > digital distractions disturbances disobedience
+3. Retainer Relationship
+4. Money: a Resource Relationship
