@@ -1807,3 +1807,16 @@ New Living Translation And this same God who takes care of me will supply all yo
 
 1.  "Phantom income"
 2.  https://www.richdad.com/resources/rich-dad-financial-education-blog/january-2017/the-four-profit-centers-that-make-real-estate-the
+3.  https://www.richdad.com/resources/rich-dad-financial-education-blog/january-2017/the-four-profit-centers-that-make-real-estate-the
+4. https://www.richdad.com/resources/rich-dad-financial-education-blog/april-2017/5-things-you-can-do-to-reduce-your-tax-bill-next-y
+5. https://www.richdad.com/resources/rich-dad-financial-education-blog/september-2017/the-poor-mindset-of-a-millionaire#at_pco=smlrebh-1.0&at_si=5d4262846947765f&at_ab=per-2&at_pos=2&at_tot=4
+6.  syndacite.list
+7.  Syndacite.List
+8. https://www.richdad.com/resources/rich-dad-financial-education-blog/may-2018/the-poorest-500k-couple-in-new-york
+9.  How to lower the barriers to entry for investors?
+10. Luck (Lotto), Love (married to wealth), trust fund kid (inheritence), Greed game, cheap, cheat (crook), pp = pretty, popular ... FIQ = financial intelligent  https://www.richdad.com/resources/rich-dad-financial-education-blog/july-2014/8-ways-to-become-rich#at_pco=smlrebh-1.0&at_si=5d4262846947765f&at_ab=per-2&at_pos=1&at_tot=4
+11.  Babies blog.  Cute album of babies and baby animals
+12.  Trust Fund Baby
+
+1.  https://www.richdad.com/resources/rich-dad-financial-education-blog/september-2017/the-poor-mindset-of-a-millionaire#at_pco=smlrebh-1.0&at_si=5d4262846947765f&at_ab=per-2&at_pos=2&at_tot=4
+2.  Trust Fund Babes
