@@ -1797,4 +1797,10 @@ New Living Translation And this same God who takes care of me will supply all yo
 3. Retainer Relationship
 4. Money: a Resource Relationship
 5. How to remember forgotten ideas?
-6. 
+6.  PhD Poor helpless Desperate?  80% 20%
+7.   IPman Bar IP Bar
+8. Trademark and Copyright
+9.  Crypterms Crypto Terms
+10.  Physical Teleportion  
+11. Closest "Teleportation" Substitute is Illusory Logistics Implied Distribution
+12.
