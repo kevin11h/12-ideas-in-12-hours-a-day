@@ -1803,4 +1803,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.  Crypterms Crypto Terms
 10.  Physical Teleportion  
 11. Closest "Teleportation" Substitute is Illusory Logistics Implied Distribution
-12.
+12.  3 Tax Terms := { Amortization, Appreciation, Depreciation } 3TT (tricky <- depreciation) AAP  "phantom income"
+
+1.  "Phantom income"
+2.
