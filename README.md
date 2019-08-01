@@ -1796,3 +1796,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 2.  Directions + Discovery + Discipline + Diligence + Discernment + Discretion > digital distractions disturbances disobedience
 3. Retainer Relationship
 4. Money: a Resource Relationship
+5. How to remember forgotten ideas?
+6. 
