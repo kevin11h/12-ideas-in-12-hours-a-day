@@ -1789,5 +1789,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 8.  World Accelerators Tour
 9.  Accelerator.list <~ Angel.list subset
 10. https://www.gotquestions.org/guilt-dealing.html
-11.
-12.
+11. apotheosis
+12. Wikipedia autogen book Autogenerator Wiki Book
+
+1.  AI Autogenerate & synethsize wiki books e books let
+2. 
