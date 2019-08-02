@@ -1827,3 +1827,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 6.  Qute Cute Coin Copper Quantum Bit Quantum Byte Quantum Assets
 7. Quantum Cryptography
 8.  https://www.richdad.com/resources/rich-dad-financial-education-blog/july-2015/what-does-it-take-to-be-a-billionaire#at_pco=smlrebh-1.0&at_si=5d4263ae9ad822d9&at_ab=per-2&at_pos=2&at_tot=4
+9.  https://cointelegraph.com/news/moment-of-truth-for-eos-whats-next-for-4-bln-eosio-following-launch-of-v10
