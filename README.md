@@ -1831,3 +1831,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 10.  angel.coin
 11.  Syndacoin.list
 12. coinfounders.list  coinfoundry.network
+
+1.  "For the foundations of the earth are the LORD's; on them he has set the world. ... He raises up the poor from the dust; he lifts the needy from the ash heap to make ... He lifts up the needy from the dunghill, To make them sit with princes, and
