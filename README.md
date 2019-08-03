@@ -1839,3 +1839,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  FEQ financial emotional quotient
 6.  FEQ financial educational quotient
 7.  FEQ Financial EQuality
+8.  Coinsultancy Acuity Calendar Schedule Scheduling
+9.  Acuity App Calendar Integration Time + Money + Payment
+10.  Google Calendar   Date Time Cryptocurrency App, Blockchain
+11.
+12.
