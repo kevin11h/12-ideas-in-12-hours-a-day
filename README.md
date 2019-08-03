@@ -1844,3 +1844,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 10.  Google Calendar   Date Time Cryptocurrency App, Blockchain
 11. Acuity Date Coinsultancy:  Time, Date, Place, People, Payment (cryptocurrency)
 12.
+
+1.  Automated Assets
+2.  Cu Cute Qute Quantum Bit Quantum Byte Asset
+3. Create Value Value Creation.  Create Innovation.  Innovation Creation
