@@ -1848,3 +1848,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  Automated Assets
 2.  Cu Cute Qute Quantum Bit Quantum Byte Asset
 3. Create Value Value Creation.  Create Innovation.  Innovation Creation
+4.  Intelligent Investor -> Innovative Investor
+5.  Time + Health + Energy + Wisdom + Attention / Presence ~> intrinsic motivation rewards, value, innovation ~> money
+6.  Momentum -> more money motive
