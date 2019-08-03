@@ -1836,3 +1836,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 2. Mineral Rites Rights Blockchain Certificate License Mining Minerals
 3. Precious Mineral rights rites Deeds Certificate License "Stake"
 4. "Stake" & "Stability" in cryptocurrenncy digital assets value
+5.  FEQ financial emotional quotient
+6.  FEQ financial educational quotient
+7.  FEQ Financial EQuality
