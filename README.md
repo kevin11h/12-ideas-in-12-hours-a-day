@@ -1867,4 +1867,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 7.  #book #idea Jobs of Jesus
 8.  #book #idea Called to Christ Commentary Cs students
 9.  #book #idea AMWXF AMWF maga zines magazine 10 page comics photos
-10.
+10.  #book #idea investing & Financial Wisdom in the Bible Solomon wealth Jesus Parables
+11.  Coinventory Coinventions ++ 
+12.  invention <- high voume return leverage asset
