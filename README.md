@@ -1852,5 +1852,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  Time + Health + Energy + Wisdom + Attention / Presence ~> intrinsic motivation rewards, value, innovation ~> money
 6.  Momentum -> more money motive
 7.  How's the Weather?
-8.  Momoney Momentum Measure Manage Meaning Mission Mind Mantras
+8.  Momoney Momentum Measure Manage Meaning Mission Mind Mantras Meditation
 9.  https://nextshark.com/struggling-chinese-man-becomes-extremely-successful-after-meeting-his-beautiful-soulmate/
+10.  Miracle Mindsets Book = Metaphors (symbols) + Growth + Alchemy + Meditation
+11.
