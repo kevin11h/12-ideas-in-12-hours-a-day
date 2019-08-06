@@ -1856,3 +1856,15 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.  https://nextshark.com/struggling-chinese-man-becomes-extremely-successful-after-meeting-his-beautiful-soulmate/
 10.  Miracle Mindsets Book = Metaphors (symbols) + Growth + Alchemy + Meditation
 11.
+12.
+
+1. Book Ideas
+2.  Web Maga Zines
+3.  Magic Zines Magi Magazine
+4.  #book #idea AM Wealth Guide + Commentary + Fan Li + Dan Lok 3 Cs High Leverage Skills + Interviews + Translations + Glossary + Bibliography + Rich Dad + Blue Ocean + Podcasts + referrals
+5.  #book #idea Mindset Miracle <- Metaphors (symbols) +Elements Alchemy + Mind Missions + Mindshift Meaning + Mantras + Mandalas + Mindset Shift + Transform & Heal your mind
+6. #book #idea Food Diary Junkfood Journal asian entrepreneur cook book recipes
+7.  #book #idea Jobs of Jesus
+8.  #book #idea Called to Christ Commentary Cs students
+9.  #book #idea AMWXF AMWF maga zines magazine 10 page comics photos
+10.
