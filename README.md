@@ -1870,3 +1870,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 10.  #book #idea investing & Financial Wisdom in the Bible Solomon wealth Jesus Parables
 11.  Coinventory Coinventions ++ 
 12.  invention <- high voume return leverage asset
+
+1.  #book #idea #WTTDTYAHSB #ebook #zine #webzine #magazine #digital #publication
