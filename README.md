@@ -1878,3 +1878,21 @@ New Living Translation And this same God who takes care of me will supply all yo
 5. world engagement tour
 6.  world honeymoon tour
 7. Luke 14:15-24 Banquet excuses https://www.youtube.com/watch?v=X-ZdF8LZDqM
+8.  Nutrition Notes
+9.  Junkfood Journal (Hopefully Blank)
+10.   Food Diary
+11.  life.bank life insurance placenta embryo reproductive research health insurance
+12.  Energy commmodities cryptocurrency
+
+1.  Food Diary
+2.  Growth Garden
+3.  Prayer Journal
+4.  Gratitude Journal
+5.  Nutrition Notebook
+6.  Inventor's Notebook
+7. engineer diary
+8.  engineering journal
+9.  Science journalism
+10.  study guide 
+11. study sheet
+12.
