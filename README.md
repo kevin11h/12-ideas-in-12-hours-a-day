@@ -1895,4 +1895,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.  Science journalism
 10.  study guide 
 11. study sheet
-12.
+12.  https://www.google.com/search?q=Shimomuran&source=lnms&tbm=bks&sa=X&ved=0ahUKEwjintLv3vzjAhUriFQKHcuKBlwQ_AUIFygB&biw=972&bih=568
+
+1. Osamu Shimomura
