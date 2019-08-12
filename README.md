@@ -1872,3 +1872,9 @@ New Living Translation And this same God who takes care of me will supply all yo
 12.  invention <- high voume return leverage asset
 
 1.  #book #idea #WTTDTYAHSB #ebook #zine #webzine #magazine #digital #publication
+2.  world arbitrage tour
+3.  world auction tour
+4. world marriage tour
+5. world engagement tour
+6.  world honeymoon tour
+7. Luke 14:15-24 Banquet excuses https://www.youtube.com/watch?v=X-ZdF8LZDqM
