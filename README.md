@@ -1898,3 +1898,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 12.  https://www.google.com/search?q=Shimomuran&source=lnms&tbm=bks&sa=X&ved=0ahUKEwjintLv3vzjAhUriFQKHcuKBlwQ_AUIFygB&biw=972&bih=568
 
 1. Osamu Shimomura
+2.  https://www.youtube.com/watch?v=uLtawOhpBSE
+3.  Shimomura economics
+4.  Loonshots book :  organizational management / psychology
