@@ -1901,3 +1901,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 2.  https://www.youtube.com/watch?v=uLtawOhpBSE
 3.  Shimomura economics
 4.  Loonshots book :  organizational management / psychology
+5.  Fear to Freedom  Fear -> Freedom
+6.  Fear, Failure, Foolishness -> Friend + Faith + Fuel -> Focus & Flow -> Freedom -> Father
