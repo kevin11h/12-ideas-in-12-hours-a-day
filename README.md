@@ -1906,3 +1906,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 7.  Automated Streams Current
 8.  Happy Tree (Wisdom)
 9.  Tall Tree
+10.  Marina Uptown Churches Cathedrals Sundays Fundays Embrace Breeze Gentle Wind = Freedom
+11.  How to make friends acquaintances, associations based on hobbies & mutual likes & common interests?
+12.
