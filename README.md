@@ -1913,3 +1913,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 1. http://coolsmokebarbeque.com/cooking-school.html #cook #code #school #bbq
 2. Linda Love guitar lesons
 3. RichDad real estate classes https://richdadeducation.com/freeworkshop/
+4. ECRATER.com
