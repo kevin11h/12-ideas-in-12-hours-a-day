@@ -1908,4 +1908,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.  Tall Tree
 10.  Marina Uptown Churches Cathedrals Sundays Fundays Embrace Breeze Gentle Wind = Freedom
 11.  How to make friends acquaintances, associations based on hobbies & mutual likes & common interests?
-12.
+12. https://www.adventureout.com/surf/how-to-surf/ #surf #instruction
+
+1. http://coolsmokebarbeque.com/cooking-school.html #cook #code #school #bbq
+2. Linda Love guitar lesons
+3. RichDad real estate classes https://richdadeducation.com/freeworkshop/
