@@ -1915,3 +1915,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 3. RichDad real estate classes https://richdadeducation.com/freeworkshop/
 4. ![](ECRATER.com)
 5.  Coinvention -> Master Make Money Motivation thin Air
+6.  Coinstrumentation . Coinstrumentality
+7.  Instru-Mentality
