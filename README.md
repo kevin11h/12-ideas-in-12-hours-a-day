@@ -1917,3 +1917,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  Coinvention -> Master Make Money Motivation thin Air
 6.  Coinstrumentation . Coinstrumentality
 7.  Instru-Mentality
+8.  Accreditation Blockchain <- Certificate Investing License on Blockchain for Qualified Sophisticated Investors
+9.  Credo Crypto CryptoCreditation
