@@ -1919,3 +1919,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 7.  Instru-Mentality
 8.  Accreditation Blockchain <- Certificate Investing License on Blockchain for Qualified Sophisticated Investors
 9.  Credo Crypto CryptoCreditation
+10. Fastbook.com Save + Make 10+ hrs. Time per weekly, 14 hours by FASTBOOK.com = Social Media Fast from Facebook - Google extension 
+11.  Automate email collection - Mining social web <- LeadGen
+12.
