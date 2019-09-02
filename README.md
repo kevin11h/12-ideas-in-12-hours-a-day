@@ -1921,4 +1921,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.  Credo Crypto CryptoCreditation
 10. Fastbook.com Save + Make 10+ hrs. Time per weekly, 14 hours by FASTBOOK.com = Social Media Fast from Facebook - Google extension 
 11.  Automate email collection - Mining social web <- LeadGen
-12.
+12. https://cryptobriefing.com/institutional-crypto-arbitrage-tether/
+
+1. https://www.chinainstitute.org/event/contradictions-chinas-bitcoin-ban-global-cryptocurrency-boom/
