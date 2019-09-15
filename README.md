@@ -1928,3 +1928,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.  Affiliate Advertising Network
 4. amwf impregnation videos
 5.  Vanity = Voidness of Value
+6.  Zen Focus Flow Concentrated Reflection
+7.  Focus = Listening Soulful Mindful Heartful God Jesus Christ
+8.  Raise Raising Lifting the psychic and conscious energy levels (spiritual, bodily / somatic (physical), mental, emotional)
+9.  Every consversation should serve as statements of / from enlightenment
+10.
