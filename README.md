@@ -1935,3 +1935,16 @@ New Living Translation And this same God who takes care of me will supply all yo
 10.  Reading books is seeking soul
 11.  Mirror to Mind and Soul through REading
 12.  ReaderLeaders Productions
+
+1.  SyncShare - Across Broadcast Single One-Poster APP
+2.  OnePoster -> Sync + Share 1 single post Across Broadcast Among All Social Media Channels #APP #Automated #Scheduler
+3.  Invent > Invest
+4.  
+5.
+6.
+7.
+8.
+9.
+10.
+11.
+12.
