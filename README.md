@@ -1939,8 +1939,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  SyncShare - Across Broadcast Single One-Poster APP
 2.  OnePoster -> Sync + Share 1 single post Across Broadcast Among All Social Media Channels #APP #Automated #Scheduler
 3.  Invent > Invest
-4.  
-5.
+4.  Inventing is a good way of Investing
+5.  Starseed Productions
 6.
 7.
 8.
