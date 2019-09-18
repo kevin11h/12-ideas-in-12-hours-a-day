@@ -1941,8 +1941,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.  Invent > Invest
 4.  Inventing is a good way of Investing
 5.  Starseed Productions
-6.
-7.
+6.  https://www.clickfunnels.com
+7.  https://smartblogger.com/affiliate-networks/
 8.
 9.
 10.
