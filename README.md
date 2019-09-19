@@ -1946,7 +1946,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 8.  GoldPill Sell Minerals Vitamins Omega 3 Alchemy blog
 9.  ROTI = Return on Time Invested
 10.  Inventing is a good way of Investing
-11.
+11.  https://github.com/kevin11h/ebook-titles-starseed-productions-publications
 12.
 
 1. 
