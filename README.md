@@ -1949,8 +1949,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 11.  https://github.com/kevin11h/ebook-titles-starseed-productions-publications
 12.
 
-1. 
-2.
+1.  AMWF Magazine
+2.  AMXF Magazine
 3.
 4.
 5.
