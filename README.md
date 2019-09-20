@@ -1952,7 +1952,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  AMWF Magazine
 2.  AMXF Magazine
 3.  Rate My Writing.com <- Clone of "Rate my Professors" Opinon Commentator Star Site
-4.
+4.  Gingergirls Magazine Subscriptions
 5.
 6.
 7.
