@@ -1955,9 +1955,13 @@ New Living Translation And this same God who takes care of me will supply all yo
 4.  Gingergirls Magazine Subscriptions
 5.  Wikipedia Christianity Book Published Custom Publishing pediapress.com/books/setup/b854d0a1876ac7f3f06f3f8fe73e16/
 6.
-7.
-8.
-9.
+7.  Rate My Writing RMW
+8.  RMW "Write a thon"
+9.  Write-a-thon / code , craft, blog blogger hackathon
 10.
 11.
 12.
+
+1.
+2.
+3.
