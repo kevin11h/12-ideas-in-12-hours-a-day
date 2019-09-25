@@ -1958,10 +1958,14 @@ New Living Translation And this same God who takes care of me will supply all yo
 7.  Rate My Writing RMW
 8.  RMW "Write a thon"
 9.  Write-a-thon / code , craft, blog blogger hackathon
-10.
+10. Millienial Millionaires Mentorship Membership  Club
 11.
 12.
 
 1.
 2.
 3.
+4.
+5.
+6.
+7.
