@@ -1962,10 +1962,15 @@ New Living Translation And this same God who takes care of me will supply all yo
 11. Information Products Manager MegaSlack Chat Club Group Network
 12.  Digital Products Manager MegaSlack Chat Club Group Network
 
-1.  
+1.  Ruby on Rails Mastery 
 2.
 3.
 4.
 5.
 6.
 7.
+8.
+9.
+10.
+11.
+12.
