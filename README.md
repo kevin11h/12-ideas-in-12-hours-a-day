@@ -1967,10 +1967,10 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.  Information Products Manager MegaSlack Chat Club Group Network Channel on Slack
 4.  Digital Products Manager MegaSlack Chat Club Group Network Channel on Slack
 5.  E-Books uploaded on Drive folder
-6.
-7.
-8.
-9.
+6.  https://en.wikipedia.org/wiki/Breadfruit
+7.  
+8.  Sacred Space Palo Alto outside water fountain
+9.  Sacred Space Palo Alto Night Time Worship Korean Language
 10.
 11.
 12.
