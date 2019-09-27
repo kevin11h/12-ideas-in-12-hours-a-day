@@ -1987,3 +1987,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 10.  Energy Nutrition Diet Regimen Food Fuel https://github.com/kevin11h/High-Virility
 11.  High Virility Diet
 12.  Stephen Chu Stanford Energy Cleantech Coming of Age  https://news.stanford.edu/2018/08/24/lessons-learned-future-cleantech-investments/
+
+
+1.  CopyChrist  = Christian Copywriting Copywriters Guild
+2.  ChristianCopywriters
+3.  CopyMasters  = ToastMasters for Writers
