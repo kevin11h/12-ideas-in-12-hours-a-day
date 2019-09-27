@@ -1982,3 +1982,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  ♀⚢
 6.
 7.  https://github.com/kevin11h/Activities-Data-Events-Appointment-Extension-Protocol-File-Format
+8.
+9.
+10.  Energy Nutrition Diet Regimen Food Fuel https://github.com/kevin11h/High-Virility
+11.  High Virility Diet
+12.  Stephen Chu Stanford Energy Cleantech Coming of Age  https://news.stanford.edu/2018/08/24/lessons-learned-future-cleantech-investments/
