@@ -1978,3 +1978,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  https://www.amazon.com/PeterIvan-Cascading-Resin-Rock-Tabletop-Fountain/dp/B07JZF5F67/ref=sxin_0_ac_d_rm
 2.  http://openspacesfengshui.com/feng-shui-tips/2012/09/three-best-places-for-your-feng-shui-fountain/
 3.
+4.
+5.  ♀⚢
+6.
+7.  https://github.com/kevin11h/Activities-Data-Events-Appointment-Extension-Protocol-File-Format
