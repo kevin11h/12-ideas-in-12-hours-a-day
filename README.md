@@ -1963,10 +1963,10 @@ New Living Translation And this same God who takes care of me will supply all yo
 12.  Digital Products Manager MegaSlack Chat Club Group Network
 
 1.  Ruby on Rails Mastery 
-2.
-3.
-4.
-5.
+2.  ROC = Rate our Copy (writing, Coding)  Ruby on Rails Rate my professor clone
+3.  Information Products Manager MegaSlack Chat Club Group Network Channel on Slack
+4.  Digital Products Manager MegaSlack Chat Club Group Network Channel on Slack
+5.  E-Books uploaded on Drive folder
 6.
 7.
 8.
