@@ -2026,3 +2026,11 @@ New Living Translation And this same God who takes care of me will supply all yo
 4.
 5. Hent*i Affiliate Network
 6.  Hackathon Hoppers Creatives Calendar
+7. Ruby on Rails Power Session
+
+1.  8000 Writing Words Per Day ~ 10 paragraphs
+2.  500 Writing Words Per Day ~ 2 paragraphs
+3.  2500 Writing Words Per Day~ 5 paragraphs
+4.  1000 Writing Words per Day ~ 3 paragraphs
+5.  5 Five Paragraph Essay 
+![](http://1.bp.blogspot.com/-Lr5rv3VfV_s/VjwbWHbf2MI/AAAAAAAABWg/kq-bmGzmoS0/s1600/hamburger%2Bparagraph.png)
