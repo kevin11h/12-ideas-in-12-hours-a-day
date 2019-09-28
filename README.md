@@ -1998,7 +1998,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 7.  
 
 
-1.
+1.  Be -> Being -> Begin -> Believe -> Behave -> Beyond
 2.
 3.
 4.
+5.
