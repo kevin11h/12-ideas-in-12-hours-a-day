@@ -1992,3 +1992,13 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  CopyChrist  = Christian Copywriting Copywriters Guild
 2.  ChristianCopywriters
 3.  CopyMasters  = ToastMasters for Writers
+4.  CopyMastery
+5.  CoinZen
+6.  CoinCopy  #crypto #blogs #news
+7.  
+
+
+1.
+2.
+3.
+4.
