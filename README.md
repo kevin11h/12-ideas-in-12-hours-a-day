@@ -2015,5 +2015,13 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  Christian-bookstore-wordpress
 2.  Christian Book Mark Store Christian Book Mark Business Card
 3.  Christian-bookstore-wordpress
-4.
+4.  Dan Lok MBOs Masters of Business Owners
 5.
+6.
+7.
+
+1.  RichDad Real Estate Investing Course
+2.  INtellectual Property Financial Innovation Invention Course
+3.
+4.
+5. Hent*i Affiliate Network
