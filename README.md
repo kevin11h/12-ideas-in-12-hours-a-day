@@ -2034,3 +2034,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 4.  1000 Writing Words per Day ~ 3 paragraphs
 5.  5 Five Paragraph Essay 
 ![](http://1.bp.blogspot.com/-Lr5rv3VfV_s/VjwbWHbf2MI/AAAAAAAABWg/kq-bmGzmoS0/s1600/hamburger%2Bparagraph.png)
+6.
+7.  Coinfidentiality = #crypto #news #blockchain #blog
+8. CopyMasters International Workshop
+9.  Cointernational #crypto #blockchain #accelerators #international #network
