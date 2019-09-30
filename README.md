@@ -2038,3 +2038,98 @@ New Living Translation And this same God who takes care of me will supply all yo
 7.  Coinfidentiality = #crypto #news #blockchain #blog
 8. CopyMasters International Workshop
 9.  Cointernational #crypto #blockchain #accelerators #international #network
+10.
+11.
+12.
+
+1.  Food work .  Food Prep(aration) works. Volunteer Feed Homeless Thanksgiving
+2.
+3.  How to connect better.  How to communicate well.  How to communicate compassionately
+4.
+5.  How to stop fixating on negativity?
+6.
+7.  How to stop thinking counterproductive thoughts?
+8.
+9.  Why don't we think positively?  Why don't we be nice with positivity?
+10.
+11.  How to resist temptations from the devil?  Resist & Flee Refuge
+12.  God is my refuge.  Lord is my strength!
+
+1.  How to followup well with miccroconference presenters?
+2.  How to ask for followup documentation, presentation slides?
+3.  How to do due diligence, background check , read former publications, writings and works?
+
+1.  TuringChain
+2.  SkyDeck
+3.  FreeVentures
+4.  Bootcamp developer students need to be certified too.  Technology stack specific
+5.  MicroDegrees x EdX integration x MOOCS licenses
+6.  Mentorship
+7.  Alex & Ping Taiwan connect
+8.  International Student and Scholars Academic passport ( IDentity)
+9.  Student Passport & Wallet (Identity + Tokenization + Academic Credit + Coursework Grades Currency)
+10. Andy Draper University entrepreneur bootcamp certification
+11.
+12.  How to witness the Gospel with Jeff?  Solid True Taiwanese Christians (Andrew Yang Taiwanese descendant Christian)
+
+
+1.   RJ Mentorship
+2.   RJ Saturday Cupertino BBQ #Saturdays
+3.   RJ volunteer food works food prep(aration).  BBQ marinate?
+4.  BBQ Marination, Lawrence Chiang invitation?
+5.  Andy Draper University Grill Night - Co-Host Joint party?
+6.  What value proposition can I offer RJ?
+7.  What are communication models that make sense we can agree + build upon?
+8.  How to help harmony?
+9.  How to use Art of Harmony by Lao Tzu?
+10.  How to witness the Gospel to RJ?  How to volunteer together?  How to connect with Henry Wang + Stephen & RJ @Harmony Network?
+11.  Music writing.  Music THERAPY + Music Melody Healing.  Harmony Healing
+12.  Cymatics Sound Music Instrumentality Healing Harmony Harmonic 
+
+1.  Henry Sesame
+2.  TokenEconomics Terms 
+3.  Wharton Alumni 
+4.  Study research venture beat article
+5.  Follow up email with copy of article + introduction Wharton alumni network
+6.  What mistakes to avoid during Token launch?
+7.  What is open sesame?  Why?  
+8.  How can Henry help us?  How can we help Henry?
+9.  What is Henry's business model?  How does Henry's sesame network make money?
+10.  Where are you based?  How large is your market?  Who are your customers?
+11.  How to witness with Henry?  Henry True Taiwanese Christian
+12.  What are simple sesame apps I can download run code compile & execute from github or opensource?
+
+1.  Bitcoin Jingle Song Artists Copyright
+2.  Taitian & Jun Connect Creative Works
+3.  Frank Hastings protect your students and research from "unbased" "unfounded" flimsy foundation racial profiling
+4.  Conflict of Interest vs Patents
+5.  Atrium + Justin Kan + Blockcahin Legal Landscape
+6.  Patents on Atrium blockchain?  How can we connect?
+7.  Can I offer my pro bono technical skills as a service?  TSaaS
+8.  Can I do any paper work scripting?
+9.  What is your business model?
+10.  How can we implement your theory?
+11.  JD Mentor, What are your previous publications / works / research interests?
+12.  How to witness with Jerry JD?  Andrew Yang JD too True Taiwanese Christian
+13.
+14.  How to show JD MVP App relevant related to his research area, proof?
+15.
+16.
+17.
+18.
+19.
+20.
+
+
+1.  Wharton Graduate Business School
+2.  Pennsylvania
+3.  Hershey's factory
+4.  Hershey's mission
+5.  Milton Hershey compassion
+6.  Why Pennsylvania?
+7.  Geographical Advantages?
+8.  Environmental Benefits?
+9.  East Coast Christianity Network
+10. East Coast Publishers Publishing industry
+11. Brooklyn Creative Collective East Coast Indie Artists
+12. Jun Dam Mentorship, Follow Up Brooklyn Creative Collective East Coast Indie Artists
