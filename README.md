@@ -2089,7 +2089,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  Henry Sesame
 2.  TokenEconomics Terms 
 3.  Wharton Alumni 
-4.  Study research venture beat article
+4.  Study research venture beat article #Venture #Beat #article
 5.  Follow up email with copy of article + introduction Wharton alumni network
 6.  What mistakes to avoid during Token launch?
 7.  What is open sesame?  Why?  
@@ -2133,3 +2133,9 @@ New Living Translation And this same God who takes care of me will supply all yo
 10. East Coast Publishers Publishing industry
 11. Brooklyn Creative Collective East Coast Indie Artists
 12. Jun Dam Mentorship, Follow Up Brooklyn Creative Collective East Coast Indie Artists
+
+1. Ideagen.  Idea.list with cryptocurrency rewards payments & incentives #Dime #Dozen 
+2.  Edwin Oh Product / Market Fitness #Fit
+3.
+4.
+5.
