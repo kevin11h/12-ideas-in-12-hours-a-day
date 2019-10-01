@@ -2141,3 +2141,12 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.
 6.  Origin Stories.  Origin -> Superpower Transformation Entrepeneur Magazine, Blockleaders
 7.
+8.
+9.
+10.
+11.
+12.
+
+1.  AMWF Tees Tops  Shirts  https://www.amazon.com/AMWF-Family-Asian-White-Female/dp/B07KWV3ZFT
+2.
+3.
