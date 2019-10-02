@@ -2152,3 +2152,15 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.
 4.
 5.  Clothed in Christ  - Christian Clothing - Verse Shirts
+6.
+7.  Gourmet - Uber for Fine Dining - Michelin Chefs + Celebrity Cooks
+8.  Gourmet - Take Food picture, Order Food, & Delivered
+9.  
+10.  Cooking = Coding
+11.
+12.  https://www.youtube.com/watch?v=SXwGtZuNDO8
+
+
+1.
+2.
+3.
