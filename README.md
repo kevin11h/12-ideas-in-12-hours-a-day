@@ -2164,3 +2164,10 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.
 2.
 3.
+4.
+5.
+
+
+1.  IPM Information Product Managers Network / Club / Membership / Super Slack Channel / Million memberships
+2.  Millionare Members Memberships
+3.  Millionare Mentorships Mentors Network 
