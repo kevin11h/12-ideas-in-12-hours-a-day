@@ -2171,3 +2171,12 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  IPM Information Product Managers Network / Club / Membership / Super Slack Channel / Million memberships
 2.  Millionare Members Memberships
 3.  Millionare Mentorships Mentors Network 
+4.
+5.
+6.
+7.  Christ Teaching & Healing Ministry = Wisdom + Health + Spirituality
+8.
+9.
+10.
+11.
+12.
