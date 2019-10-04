@@ -2179,4 +2179,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.
 10.
 11.
-12.
+12.  Holiness Francis Chan https://www.youtube.com/watch?v=Vdzp6QuZYSs
