@@ -2180,3 +2180,10 @@ New Living Translation And this same God who takes care of me will supply all yo
 10.
 11.
 12.  Holiness Francis Chan https://www.youtube.com/watch?v=Vdzp6QuZYSs
+
+
+1.  Hungry foolish wisdom curiosity
+2.  Audiobook Maker ->   E-book to Audio book transcriber
+3.
+4.
+5.
