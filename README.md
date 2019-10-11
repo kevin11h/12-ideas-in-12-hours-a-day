@@ -2224,3 +2224,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.  https://cointelegraph.com/news/official-alipay-to-ban-all-bitcoin-related-transactions
 4.
 5. https://en.wikipedia.org/wiki/Underwriting
+6.  https://en.wikipedia.org/wiki/Underwriting
+7. https://www.youtube.com/watch?v=bv728cTg1nY
+8. 
