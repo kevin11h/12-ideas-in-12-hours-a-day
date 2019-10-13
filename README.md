@@ -2230,3 +2230,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 …4But one of His disciples, Judas Iscariot, who was going to betray Him, asked, 5“Why wasn’t this perfume sold for three hundred denarii and the money given to the poor?” 6Judas did not say this because he cared about the poor, but because he was a thief. As keeper of the money bag, he used to take from what was put into it
 9.  300.co
 10. https://cointelegraph.com/news/decentralized-communication-startup-new-vector-raises-85m
+11.  Pseudo -> Super
