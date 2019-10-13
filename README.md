@@ -2231,3 +2231,11 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.  300.co
 10. https://cointelegraph.com/news/decentralized-communication-startup-new-vector-raises-85m
 11.  Pseudo -> Super
+12.  Manager Salary
+
+
+1.
+2.
+3.
+4.
+5.  GoodReads to Amazon bridge -> Sell your inventory books on Amazon with one click
