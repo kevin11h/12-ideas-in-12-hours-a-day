@@ -2245,3 +2245,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.
 
 1. E-ministry - Email Evangelism Scripture Verses electronic mail
+2.
+3.
+4.
+5.  https://cointelegraph.com/news/south-korean-kb-kookmin-bank-adopts-blockchain-to-improve-internal-processes
+6.  https://cointelegraph.com/news/is-us-environmental-tax-policy-hindering-solar-power-to-fuel-digital-technologies
