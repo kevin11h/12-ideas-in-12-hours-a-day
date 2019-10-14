@@ -2241,3 +2241,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  GoodReads to Amazon bridge -> Sell your inventory books on Amazon with one click
 6.
 7. https://www.newsbtc.com/2018/09/10/he-speaks-for-the-global-compatriots-jeff-wang-creates-the-great-vision-of-global-chinese-with-blockchain/
+8.
+9.
+
+1. E-ministry - Email Evangelism Scripture Verses electronic mail
