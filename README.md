@@ -2269,4 +2269,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 9.
 10.
 11.
-12.
+12.  Iron Rich Food Supplements Diet BBQ Grill Whole Vegatables Tropical Fruits AAA-Grade Protein 
