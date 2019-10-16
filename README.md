@@ -2250,3 +2250,14 @@ New Living Translation And this same God who takes care of me will supply all yo
 4.
 5.  https://cointelegraph.com/news/south-korean-kb-kookmin-bank-adopts-blockchain-to-improve-internal-processes
 6.  https://cointelegraph.com/news/is-us-environmental-tax-policy-hindering-solar-power-to-fuel-digital-technologies
+7.  HG = Home Grown / Home Generator -> Energy, Earnings Money Income
+8.
+9.
+10.
+11.
+12.
+
+
+1.  Daily Devotional
+2.
+3.
