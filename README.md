@@ -2289,3 +2289,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.  Quotebook - Facebook - Phrasebook - Textbook - Bible Verses Book - Versebook - Praise Book - Song Book
 4.
 5.
+6.
+7.  https://cointelegraph.com/news/fidelity-investments-fully-rolls-out-crypto-custody-service-exec-says
