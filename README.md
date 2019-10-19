@@ -2272,3 +2272,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 12.  Iron Rich Food Supplements Diet BBQ Grill Whole Vegatables Tropical Fruits AAA-Grade Protein 
 
 1.  https://www.newsbtc.com/2019/10/18/full-rollout-fidelity-opens-up-bitcoin-business-to-billions/
+2.
+3.  Auto Sync Pull Repositories Back up Copy from Github
+4.
+5.
