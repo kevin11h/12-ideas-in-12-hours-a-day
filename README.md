@@ -2309,3 +2309,16 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.
 4.
 5.  Writing should speak for itself
+6.
+7.  Enlightening Experience
+8.  Conversations Create Clarity
+
+10.
+11.
+12.  Reading Meditation
+
+1.   Read Regularly
+2.  Curiosity
+3.  Humility
+4.  Initiative
+5. 
