@@ -2322,3 +2322,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.  Humility
 4.  Initiative
 5. 
+6.
+7.  Lunch & Learn
