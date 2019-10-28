@@ -2323,4 +2323,8 @@ New Living Translation And this same God who takes care of me will supply all yo
 4.  Initiative
 5. 
 6.
-7.  Lunch & Learn
+7.  Lunch & Learn + Listen.
+
+
+1.  How to turn hacker home house?  co living co working space turn my home into a hacker house?
+2.  How to turn home into hacker house?  Into Women's Coding & Coliving couch surf / dormitory / home school?
