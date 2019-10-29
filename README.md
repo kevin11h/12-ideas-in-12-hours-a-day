@@ -2331,3 +2331,15 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.
 4.
 5.  
+
+
+1.  Meme Marks = Book Marks with Memerable quotes
+2.
+3.
+4.
+5.  Re-Currency = Connectivity, Internet, Signal >> Energy & Battery >> Software >> Hardware >> Mobile Phones
+
+
+1.  Signal -> Sign Coin SIGN for connectivity internet coin signal currency $SIGN locations where there is good innnanet
+2.  $SIGN = Name Coin approval consent permission title "Name"
+3.
