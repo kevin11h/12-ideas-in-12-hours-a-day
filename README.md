@@ -2347,3 +2347,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  Diversity Dollars
 6.
 7.  FemCoin Feminist Currency
+
+
+1.  Sports Bra & Yoga Pants Fetish
