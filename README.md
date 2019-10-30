@@ -2343,3 +2343,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  Signal -> Sign Coin SIGN for connectivity internet coin signal currency $SIGN locations where there is good innnanet
 2.  $SIGN = Name Coin approval consent permission title "Name"
 3.
+4.
+5.  Diversity Dollars
+6.
+7.  FemCoin Feminist Currency
