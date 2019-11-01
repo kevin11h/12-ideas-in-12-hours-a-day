@@ -2354,3 +2354,5 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.  
 4.
 5.  Partner
+6.
+7.  https://www.coindesk.com/ex-official-trolls-libra-says-china-likely-to-issue-digital-currency-first
