@@ -2359,3 +2359,9 @@ New Living Translation And this same God who takes care of me will supply all yo
 8
 9.
 10.  CLONE coin crypto + cryogenics + egg & germ & sperm digital dna banking digital 23&me + crypto rewards digital backup genetics
+11.  Acrostic
+12.
+
+1.
+2.
+3.
