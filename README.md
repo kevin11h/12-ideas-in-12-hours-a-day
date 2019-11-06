@@ -2366,6 +2366,10 @@ New Living Translation And this same God who takes care of me will supply all yo
 2.
 3.
 
-1. Domicle = Holy House = Temple of Christians Body = Certificate Tax-Exemption on Blockchain powered by laws of logic (math, science) & Christ's Law -> S.o.C.S x What God has joined let man not separate & Render to Caesar and what is God to God 
+1. Domicile = Holy House = Temple of Christians Body = Certificate Tax-Exemption on Blockchain powered by laws of logic (math, science) & Christ's Law -> S.o.C.S x What God has joined let man not separate & Render to Caesar and what is God to God 
 2.
 3.
+4.
+5.
+
+1.  Domicile
