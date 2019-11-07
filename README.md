@@ -2373,3 +2373,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.
 
 1.  Domicile
+2.
+3.
+4.
+5.  Codex
