@@ -2380,3 +2380,11 @@ New Living Translation And this same God who takes care of me will supply all yo
 6.
 7.  7G Smartphones 2 - 5 Billion Active Users in Humanity with decentralized crypto blockchain wallet pre-installed, open source software, sponsored apps + renewable energy efficient battery source Powered
 8. Manufactured outsourcing - Cheapest smallest smartest efficient basic smart phone
+9.
+10.
+
+1. $2 pick up making dating courtship as casual as coffee
+2.  2 PU
+3.  Court.ship systems - date applications
+4.
+5.
