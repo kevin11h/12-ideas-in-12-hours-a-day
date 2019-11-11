@@ -2388,3 +2388,10 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.  Court.ship systems - date applications
 4.
 5.
+
+11.11.2019
+1.  Bible Book Mark
+2.  Set Date Appointment Cal Calendar for Mr. Chu
+3.  Matte Cover Design China Printing
+4.
+5.
