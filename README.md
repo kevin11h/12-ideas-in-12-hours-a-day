@@ -2395,3 +2395,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.  Matte Cover Design China Printing
 4.
 5.
+
+
+1.  Cross-Sell Cross & Snake symbol of dollar - plugin to sell items goods across all social media sites
+2. 
