@@ -2411,3 +2411,15 @@ New Living Translation And this same God who takes care of me will supply all yo
 3.
 4.
 5.
+
+
+1.  Christian Church Consultancy Network C3
+2.
+3.
+4.
+5.
+
+
+1.  Copywriting = Content Leverage
+2.
+3.
