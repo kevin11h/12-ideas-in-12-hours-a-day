@@ -2404,3 +2404,10 @@ New Living Translation And this same God who takes care of me will supply all yo
 5.  Bible Verses on Github.com
 6.
 7.  Bible Books, Chapters, Testaments, Verses released on open source github.com
+
+
+1.  Content Leverage
+2.  Leverage Content Existing
+3.
+4.
+5.
