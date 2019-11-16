@@ -2458,3 +2458,14 @@ New Living Translation And this same God who takes care of me will supply all yo
 
 1. Time Talents + Efforts & Energy
 2.  https://en.wikipedia.org/wiki/Advance_copy
+
+
+1.  
+2.
+3.
+4.
+5.
+
+1.  Alaska Royalty Fund -> precious minerals pensions Fund
+2.  Alaskan Real Estate investments + Collect monthly UBI -> nonprofit schools and churches locally, Alaska & beyond 50 states
+3.
