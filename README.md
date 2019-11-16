@@ -2449,3 +2449,12 @@ New Living Translation And this same God who takes care of me will supply all yo
 
 1. Mutual Life Insurance -> Lending & savings bank on blockchain -> commercial real estate loans
 2. Invest in the AfterLife  #Coinvestor
+3.
+
+1.  ARC Advanced Review Copy
+2.
+3.  Proverbs 19:17 (TMBA) He that hath pity upon the poor lendeth unto the LORD, and that which he hath given, He will repay him again.
+
+
+1. Time Talents + Efforts & Energy
+2.  https://en.wikipedia.org/wiki/Advance_copy
