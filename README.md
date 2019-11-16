@@ -2440,3 +2440,12 @@ New Living Translation And this same God who takes care of me will supply all yo
 
 
 1. SAVE 740+ Contacts on github
+
+
+1.  Advance Copy for Review
+
+1. Life Insurance
+
+
+1. Mutual Life Insurance -> Lending & savings bank on blockchain -> commercial real estate loans
+2. Invest in the AfterLife  #Coinvestor
