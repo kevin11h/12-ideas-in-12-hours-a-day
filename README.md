@@ -2468,4 +2468,9 @@ New Living Translation And this same God who takes care of me will supply all yo
 
 1.  Alaska Royalty Fund -> precious minerals pensions Fund
 2.  Alaskan Real Estate investments + Collect monthly UBI -> nonprofit schools and churches locally, Alaska & beyond 50 states
+3.  Alaskan Realty Royalty Fund and Investor Circle 
+
+
+1.
+2.
 3.
