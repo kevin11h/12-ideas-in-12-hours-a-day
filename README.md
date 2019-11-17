@@ -2479,3 +2479,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  Export foreign Exotic Luxury Watches
 2.  IMEX import export sell luxury watches profit volume
 3.
+
+
+1. https://github.com/kevin11h/Ministry-of-Mind-Body-Spirit-Christianity
+2. 
