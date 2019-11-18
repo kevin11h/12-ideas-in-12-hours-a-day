@@ -2486,3 +2486,11 @@ New Living Translation And this same God who takes care of me will supply all yo
 
 
 1.  Steak & (Sweet) Potato Fries
+2.
+3.
+
+
+
+1.  Agency definition?
+2.  seigniorage term meaning?
+3.
