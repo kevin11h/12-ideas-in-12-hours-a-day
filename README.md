@@ -2494,3 +2494,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  Agency definition?
 2.  seigniorage term meaning?
 3.
+
+1. social@yang2020.com
+2. https://feedly.com/
+3. 
