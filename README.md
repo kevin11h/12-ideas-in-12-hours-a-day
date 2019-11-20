@@ -2511,3 +2511,13 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  Research Group Financial Payment Technologies Apply Pay Google Pay Venmo BrainTree
 2.
 3.
+
+
+1.  Transcript of Dan Lok's videos on Youtube -> Mechanical Turk + hire outsource -> book content like Andrea's Internet of money -> book
+2.
+3.
+
+
+1.
+2.
+3.
