@@ -2498,3 +2498,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 1. social@yang2020.com
 2. https://feedly.com/
 3. 
+
+
+1. https://www.2knowmyself.com/Making_money_from_the_internet
