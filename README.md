@@ -2543,3 +2543,14 @@ New Living Translation And this same God who takes care of me will supply all yo
 1. definition de facto
 2.
 3.
+
+
+1.  Humble Heal Happy :] :)
+2.
+3.
+
+1.  Humble Happiness Smile :)
+
+1.  Board Games
+
+1.  Free Board Games Ｎｉｇｈｔ　＜－　Ｐａｌｏ　Ａｌｔｏ
