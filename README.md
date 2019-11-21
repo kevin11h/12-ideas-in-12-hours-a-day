@@ -2530,3 +2530,6 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  Poynt Palo Alto volunteer Cubberly Community Center
 2.
 3.
+
+
+1.  evelyn forget mincome
