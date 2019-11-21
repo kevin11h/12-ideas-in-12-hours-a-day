@@ -2554,3 +2554,4 @@ New Living Translation And this same God who takes care of me will supply all yo
 1.  Board Games
 
 1.  Free Board Games Ｎｉｇｈｔ　＜－　Ｐａｌｏ　Ａｌｔｏ
+2.  Stanford the Board Game
