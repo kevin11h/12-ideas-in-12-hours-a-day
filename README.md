@@ -2555,3 +2555,11 @@ New Living Translation And this same God who takes care of me will supply all yo
 
 1.  Free Board Games Ｎｉｇｈｔ　＜－　Ｐａｌｏ　Ａｌｔｏ
 2.  Stanford the Board Game
+
+
+1.  de·sid·er·a·tum
+2. /dəˌzidəˈrädəm/
+ Learn to pronounce
+noun plural noun: desiderata
+something that is needed or wanted.
+"integrity was a desideratum"
