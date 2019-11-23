@@ -2563,3 +2563,7 @@ New Living Translation And this same God who takes care of me will supply all yo
 noun plural noun: desiderata
 something that is needed or wanted.
 "integrity was a desideratum"
+
+
+1.  AQUA group = Acquihire - Startups Pre-Funded by FANG and Exit planned by acquisition
+2. 
