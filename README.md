@@ -2572,3 +2572,9 @@ something that is needed or wanted.
 1.  Crypto bunnies Crypto Puppies Clone
 2.
 3.
+
+1.  Greenbanking
+2.  Seed Banking
+3.  Life Genomics information gene Banking
+4.
+5.
