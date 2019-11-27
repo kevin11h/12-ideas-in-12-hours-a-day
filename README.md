@@ -2580,3 +2580,6 @@ something that is needed or wanted.
 5.
 
 １。　ＲＥＡＤ　ＣＯＩＮ　－ECRYPTOCURRINCIES FOR LIBRARIES TAX = BENEFITS INCENTIVES
+2.  Warm Weather Friends
+
+1.  Warm Weather Working Conditions Work Areas
