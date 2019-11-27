@@ -2589,3 +2589,5 @@ something that is needed or wanted.
 1.  Coinsignal
 2.  coinsignia
 3.  Coinsigns
+
+1.  https://www.zerohedge.com/crypto/no-capitulation-bitcoin-miners-completely-unfazed-crypto-collapse
