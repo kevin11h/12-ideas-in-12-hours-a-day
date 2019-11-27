@@ -2583,3 +2583,9 @@ something that is needed or wanted.
 2.  Warm Weather Friends
 
 1.  Warm Weather Working Conditions Work Areas
+2.  Where to work at warm & tax beneficial locations, international cities of commerce & entrepreneurship?
+
+
+1.  Coinsignal
+2.  coinsignia
+3.  Coinsigns
