@@ -2592,3 +2592,4 @@ something that is needed or wanted.
 
 1.  https://www.zerohedge.com/crypto/no-capitulation-bitcoin-miners-completely-unfazed-crypto-collapse
 2. https://cointelegraph.com/news/brics-nations-discuss-shared-crypto-to-break-away-from-usd-and-swift
+3. https://github.com/kevin11h/Blogpost.ideas.list/edit/master/README.md
