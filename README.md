@@ -2595,3 +2595,4 @@ something that is needed or wanted.
 3. https://github.com/kevin11h/Blogpost.ideas.list/edit/master/README.md
 
 1.  Technicality - Terms in Thought and Action - Tools- Words as Communicative Tools
+2.  Hawaiian Health Foods Municipality Subsidy
