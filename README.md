@@ -1,5 +1,5 @@
 # 12-ideas-in-12-hours-a-day
-
+0.  MVT = Minimal Viable Tool.  Not even full-fledged product.  People (desire, demand) > Processes (physical acts) > Product (demand > design, testing)  Fork Knives (Steak) Spoons / Picks & Shovels
 1. Lunchdate -> optimize + monetize lunch hours (minimal viable "brunchwork")
 2. Tome 
 3. Green Tea and Coffee
