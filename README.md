@@ -2596,3 +2596,10 @@ something that is needed or wanted.
 
 1.  Technicality - Terms in Thought and Action - Tools- Words as Communicative Tools
 2.  Hawaiian Health Foods Municipality Subsidy
+
+
+1. Starseed productions / publications?
+2. Arclight Arclite Publications?
+3. Dollar Book Store?
+4. DollarSeed BookStore?
+5. Math = Ministry of Arts, Teaching & Healing
