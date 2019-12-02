@@ -2617,3 +2617,9 @@ something that is needed or wanted.
 3.  
 
 1.  crypto casino
+2.  capex
+3.
+
+1.  
+2.
+3.
