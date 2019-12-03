@@ -2623,3 +2623,19 @@ something that is needed or wanted.
 1.  
 2.
 3.
+
+
+1.  Food diary
+2.  Nutrition Notes
+3.  Food Diet Diary
+4.  Arclight 
+5.  4H Ministry = 1. Head (Library Locator, internet access) 2. Health (body, Hospital locator) 3. Hunger (Food Bank calendar + locations & times, Food Finder) 4. Heart (Church locator)
+5.  Moonglight Ministry
+
+# 1. LiLith = Linda & Lisa Loves Guitar Tutoring
+
+1.  Real Estate Letter Writing
+2.  Realtor Mail-in direct advertising letters
+3.
+
+1.
