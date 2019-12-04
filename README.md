@@ -2640,3 +2640,7 @@ something that is needed or wanted.
 
 1. Dollar Books$  Dollar Book$
 2.
+
+1. Article Advertising
+2. Article = Thing / Stuff / Matterial ~ Words ~ Image ~ Art
+3. 
