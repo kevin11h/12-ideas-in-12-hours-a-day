@@ -2644,3 +2644,7 @@ something that is needed or wanted.
 1. Article Advertising
 2. Article = Thing / Stuff / Matterial ~ Words ~ Image ~ Art
 3. 
+
+1. s.t.-such-that-symbol-serpent-and-cross
+2. stake - what's at stake?  what's staking?
+3. risk taking vs. staking?
