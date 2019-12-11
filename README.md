@@ -2663,3 +2663,11 @@ something that is needed or wanted.
 1.  Move your arms
 2.  Projection + Directionality
 3.  Fear Fuel
+
+1.  Self Skeptical
+2.  Skepticism - Batman - melancholy
+3.  Batman's humor / wit
+
+1.  
+2.
+3.
