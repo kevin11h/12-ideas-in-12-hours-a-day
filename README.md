@@ -2673,3 +2673,6 @@ something that is needed or wanted.
 3.  weak eyes
 
 1.  Detached Arrogance vs. Detached Compassion
+2.  https://www.mind-your-reality.com/humility_and_pride.html
+3.  Screwball humor
+4.  Psalm 1:1   Blessed is the one who does not walk in step with the wicked or stand in the way that sinners take or sit in the company of mockers,
