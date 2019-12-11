@@ -2695,9 +2695,19 @@ something that is needed or wanted.
 3.
 
 1.  Fear, Wisdom, Health, Wealth (Be Busy + Productivity)
-2.  Productive & Constructive + Creativity = No Negativity
+2.  Productive & Constructive + Creativity= No Negativity
 
 1.  Spiritual Pilgrim
 2.  Temporary Stewardship / Custodian - Custodial
 3.  Spiritual Sojourner
 4.  Traveling Ministry / Missionary
+5.
+
+1. How to complete superficial preliminary (limited) reading(s) of harmony's paper?
+2. Where is the genius in the bibliography?
+3.  How do I ask RJ and Steve's help for wordpress / winepress?
+
+
+1.  Allowing oneself to fail
+2.  Where is my money mentorship book located/
+3.
