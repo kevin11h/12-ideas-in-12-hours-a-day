@@ -2696,3 +2696,8 @@ something that is needed or wanted.
 
 1.  Fear, Wisdom, Health, Wealth (Be Busy + Productivity)
 2.  Productive & Constructive + Creativity = No Negativity
+
+1.  Spiritual Pilgrim
+2.  Temporary Stewardship / Custodian - Custodial
+3.  Spiritual Sojourner
+4.  Traveling Ministry / Missionary
