@@ -2681,3 +2681,7 @@ something that is needed or wanted.
 1.  Offense / Defense Define-Destroy, Diversify-Disguise
 2.  http://onlineadrian.com/ us cheating military wives
 3.
+
+1.  Online guitar store
+2.  https://en.wikipedia.org/wiki/Zine
+3.  DIY Do it you
