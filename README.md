@@ -2671,3 +2671,5 @@ something that is needed or wanted.
 1.  Where can we monopolize co-splaybxyz?
 2.
 3.  weak eyes
+
+1.  Detached Arrogance vs. Detached Compassion
