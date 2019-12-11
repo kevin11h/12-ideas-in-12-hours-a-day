@@ -2675,7 +2675,7 @@ something that is needed or wanted.
 1.  Detached Arrogance vs. Detached Compassion
 2.  https://www.mind-your-reality.com/humility_and_pride.html
 3.  Screwball humor
-4.  Psalm 1:1   Blessed is the one who does not walk in step with the wicked or stand in the way that sinners take or sit in the company of mockers,
+4.  Psalm 1:1   Blessed is the one who does not walk in step with the wicked or stand in the way that sinners take or sit in the mockers & Constructive + Creativity,gativity
 
 
 1.  Offense / Defense Define-Destroy, Diversify-Disguise
@@ -2693,3 +2693,6 @@ something that is needed or wanted.
 1.  casino classroom
 2.
 3.
+
+1.  Fear, Wisdom, Health, Wealth (Be Busy + Productivity)
+2.  Productive & Constructive + Creativity = No Negativity
