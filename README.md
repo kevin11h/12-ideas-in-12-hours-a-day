@@ -2676,3 +2676,8 @@ something that is needed or wanted.
 2.  https://www.mind-your-reality.com/humility_and_pride.html
 3.  Screwball humor
 4.  Psalm 1:1   Blessed is the one who does not walk in step with the wicked or stand in the way that sinners take or sit in the company of mockers,
+
+
+1.  Offense / Defense Define-Destroy, Diversify-Disguise
+2.  http://onlineadrian.com/ us cheating military wives
+3.
