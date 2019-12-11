@@ -2652,3 +2652,10 @@ something that is needed or wanted.
 1.  Spiritual Pilgrim
 2.  Pilgrammage
 3.  Temporary Stewardship (Possession / Property / Ownership)
+
+1.  Traveling Missionary / Traveling Ministry
+2.
+3.
+
+1.
+2.
