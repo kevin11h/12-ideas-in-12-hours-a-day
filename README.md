@@ -2685,3 +2685,7 @@ something that is needed or wanted.
 1.  Online guitar store
 2.  https://en.wikipedia.org/wiki/Zine
 3.  DIY Do it you
+
+1.  Project Profile
+2.
+3.  Projectionality / Profiling
