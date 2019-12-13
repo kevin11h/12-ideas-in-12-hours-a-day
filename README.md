@@ -2714,3 +2714,10 @@ something that is needed or wanted.
 
 1. https://www.goodreads.com/list/show/116305.IT_books_by_Female_Authors
 2. https://twitter.com/Amouranth/status/1204858623115087873
+
+1.  BMBA = Batman's Master's of Business Administration ~ Bruce Wayne University
+
+1. Copy = Content Leverage 80% ~ 20% 
+2. PR3 + P3 https://github.com/kevin11h/Books-Publishing-PR3-P3 Printing Press
+3.  Prolongevity Pro - Longevity
+4.  Printing Press - Communications Innovations
