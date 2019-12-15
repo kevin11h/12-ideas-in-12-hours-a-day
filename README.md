@@ -2727,3 +2727,5 @@ something that is needed or wanted.
 
 1.    Where (google maps) 2. Who (google contacts) 3. What (matter engine search) 4. When (google calendar) 
 2. 
+
+1. https://betakit.com/second-closet-raises-13-2-million-to-disrupt-billion-dollar-self-storage-market/
