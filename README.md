@@ -2747,3 +2747,5 @@ something that is needed or wanted.
 1.  https://ascentofgold.wordpress.com/2017/07/09/pink-boys-on-suicide-watch-stpeach/
 2.  Nina Hart
 3.  Sasha Hosea
+
+1. https://www.psychologytoday.com/us/blog/why-bad-looks-good/201708/the-seduction-secret-how-intrigue-sparks-attraction
