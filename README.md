@@ -2743,3 +2743,7 @@ something that is needed or wanted.
 1. https://ascentofgold.wordpress.com/2017/06/30/cheating-ruwa-woman-has-chinese-baby/
 2. https://www.abcsofattraction.com/wp-content/uploads/2018/11/Jeff-Khan-final.pdf
 3. https://ascentofgold.wordpress.com/2017/07/01/pan-turanism-men-from-the-east-to-conquer-turkish-girls-hearts-in-the-west/
+
+1.  https://ascentofgold.wordpress.com/2017/07/09/pink-boys-on-suicide-watch-stpeach/
+2.  Nina Hart
+3.  Sasha Hosea
