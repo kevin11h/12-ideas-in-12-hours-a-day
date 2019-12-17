@@ -2729,3 +2729,13 @@ something that is needed or wanted.
 2. 
 
 1. https://betakit.com/second-closet-raises-13-2-million-to-disrupt-billion-dollar-self-storage-market/
+2.  IP3 Capital Group Information Product * Intellectual Property * Insurance Pension (Plan)
+3. intellectual property market size cap?  cap(s)?  hat(s)?
+4. Thousand Flowers Bloom campaign 
+5. 5000 Loaves Feed (Idea Generator Blog) Blog for Idea Gen
+
+1.  Fish Oil
+2.  Fish symbolism ?  In Bible Parables + Miracles
+3.  Oils of Elijah
+4.  Oil Business, Elijah Friends & Family Small Business Miracle parable
+5. 
