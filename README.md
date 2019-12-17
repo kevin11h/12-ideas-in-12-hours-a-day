@@ -2739,3 +2739,6 @@ something that is needed or wanted.
 3.  Oils of Elijah
 4.  Oil Business, Elijah Friends & Family Small Business Miracle parable
 5. 
+
+1. https://ascentofgold.wordpress.com/2017/06/30/cheating-ruwa-woman-has-chinese-baby/
+2. https://www.abcsofattraction.com/wp-content/uploads/2018/11/Jeff-Khan-final.pdf
