@@ -2749,3 +2749,4 @@ something that is needed or wanted.
 3.  Sasha Hosea
 
 1. https://www.psychologytoday.com/us/blog/why-bad-looks-good/201708/the-seduction-secret-how-intrigue-sparks-attraction
+2. https://twitter.com/Amouranth/status/1207427702921351174
