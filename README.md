@@ -2750,3 +2750,6 @@ something that is needed or wanted.
 
 1. https://www.psychologytoday.com/us/blog/why-bad-looks-good/201708/the-seduction-secret-how-intrigue-sparks-attraction
 2. https://twitter.com/Amouranth/status/1207427702921351174
+3. 
+
+1. Bad Baby!
