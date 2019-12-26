@@ -2757,3 +2757,9 @@ something that is needed or wanted.
 
 1.  https://www.youtube.com/watch?v=WzrD5XeLpao AMWF animus
 2. https://www.youtube.com/watch?v=Y1IX0W0CVQo
+
+1.  ## (The Holy) Bible About Money: 2,000 Years of Timeless Treasury of Wisdom [for You]
+2.  Leverage the Lord's Wisdom
+3.  Lord is my leverage
+
+1. 
