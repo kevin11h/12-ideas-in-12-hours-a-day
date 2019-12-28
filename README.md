@@ -2762,4 +2762,6 @@ something that is needed or wanted.
 2.  Leverage the Lord's Wisdom
 3.  Lord is my leverage
 
-1. 
+1.  Art 
+2.
+3.  StarStay - Home Location Services Retirement Vacation for Seniors Old Retiree Home
