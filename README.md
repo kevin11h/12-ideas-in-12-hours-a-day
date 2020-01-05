@@ -2777,3 +2777,10 @@ something that is needed or wanted.
 
 1. futureismath@gmail.com
 2. https://theyangpapers.com/fan.html
+3.
+
+
+1. Youtube for download capturing cover photo 
+2.
+3. Youtube WordCloud Generator
+4.  What are the essential core baseelements of a sustainable system?
