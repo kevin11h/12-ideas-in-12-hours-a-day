@@ -2773,3 +2773,7 @@ something that is needed or wanted.
 
 1. https://www.amazon.com/gp/product/0762610522/ref=x_gr_w_bb_sin?ie=UTF8&tag=x_gr_w_bb_sin-20&linkCode=as2&camp=1789&creative=9325&creativeASIN=0762610522&SubscriptionId=1MGPYB6YW3HWK55XCGG2
 2. https://www.thriftbooks.com/w/california-criminal-law-procedure-and-practice-seventh-edition_jeff--adachi/1827009/item/13643637/#isbn=0762608129&idiq=13643637
+
+
+1. futureismath@gmail.com
+2. https://theyangpapers.com/fan.html
