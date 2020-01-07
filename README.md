@@ -2784,3 +2784,9 @@ something that is needed or wanted.
 2.
 3. Youtube WordCloud Generator
 4.  What are the essential core baseelements of a sustainable system?
+5.
+
+1. https://zhuanlan.zhihu.com/p/32123306
+2. 
+https://www.youtube.com/watch?v=nxP1bz4k3G0
+3.
