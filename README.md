@@ -2795,3 +2795,8 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 2.
 
 1. LA-SD-Hawaii beach babes tour model casting
+2.
+
+1. Wish List ~= Last Will
+2. Last Will ~= Wish List Insurance + blockchain & crypto
+3.
