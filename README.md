@@ -2800,3 +2800,7 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 1. Wish List ~= Last Will
 2. Last Will ~= Wish List Insurance + blockchain & crypto
 3.
+
+1. Gospel Evangelism according to Guy, Jimmy, Julian, Andrew websites techniques
+2.
+3.
