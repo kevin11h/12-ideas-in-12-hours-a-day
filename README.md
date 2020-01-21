@@ -2804,3 +2804,5 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 1. Gospel Evangelism according to Guy, Jimmy, Julian, Andrew websites techniques
 2.
 3.
+
+1. https://preview.redd.it/ys9ob92wmru31.jpg?width=640&crop=smart&auto=webp&s=dfd0b35a191307b146c351c6081185877eea8c8f
