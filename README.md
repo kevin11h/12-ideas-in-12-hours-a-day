@@ -2814,3 +2814,9 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 
 1. https://imgur.com/a/pMo1oEr
 2.https://www.youtube.com/watch?v=JDGUN-Pn2rU
+3. https://www.youtube.com/watch?v=JDGUN-Pn2rU
+4. https://www.reddit.com/r/amwf/comments/ec6yav/some_amwf_finally_represented_by_tmobile/
+5. https://preview.redd.it/jh7n3ty081b41.jpg?width=960&crop=smart&auto=webp&s=df8f6481acdba7c78f1fd8cc999524b0b67148a8
+6. https://preview.redd.it/ys9ob92wmru31.jpg?width=640&crop=smart&auto=webp&s=dfd0b35a191307b146c351c6081185877eea8c8f
+7. https://preview.redd.it/rzz28y830yw31.png?width=960&crop=smart&auto=webp&s=7db9553d41132650c371d9678d9d8d3b3653ea07
+8. 
