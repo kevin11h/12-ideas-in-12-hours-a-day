@@ -2836,3 +2836,5 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 1. Action Item App $1 $0.99 Play store
 2. Collect & Save GH Contacts Data Store & Secure
 3.
+
+1. https://www.reddit.com/r/JustBeAsian/comments/f35gme/truth_hurts/
