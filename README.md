@@ -2847,3 +2847,6 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 1. Local APP
 2. Local LInkedin MAP APP location based networking
 3.
+
+１。　https://www.reddit.com/r/aznidentity/comments/f51fb1/heartwarming_email_sent_by_my_old_white_high/
+２。　
