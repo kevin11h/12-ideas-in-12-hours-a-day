@@ -2850,3 +2850,5 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 
 １。　https://www.reddit.com/r/aznidentity/comments/f51fb1/heartwarming_email_sent_by_my_old_white_high/
 ２。　
+
+1. https://www.reddit.com/r/JustBeAsian/comments/f86jbg/based_asian_male_vs_cops/
