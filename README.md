@@ -2852,3 +2852,13 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 ２。　
 
 1. https://www.reddit.com/r/JustBeAsian/comments/f86jbg/based_asian_male_vs_cops/
+2. Curate Angellist contacts data important invite
+3. 
+
+1. Ethbrite Ethereum Party T1<icet P1atform   Smart DApps 
+2. Eventlite - AI Co11aborative Fi1tering Curated Events from Eventbrite Smart DApps 
+3. TED TEXT TEST Data - TED Presentation Videos Text Data Processing & Anay1sis
+4. PitchMasters - Toast Masters for Pitches
+5. TEXT Masters - Toast Masters for AUTHORS
+6. TOAST Masters - Toast Masters for TOASTS
+7. COPY Masters - Toast Masters for COPY WRITERS
