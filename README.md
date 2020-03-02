@@ -2866,3 +2866,17 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 1. AMWF Musical CDs & Music USB  
 2. AMWF Christian songs & music, healing hymns (soul - soothing) bethel - feeding
 3.
+
+1. Process Manager - Concept Flow Astral Star Charts
+2. 
+3.
+
+1. My money mama
+2. Mobility Modeling (business model) Move model mobile mountain money
+3.
+
+1. Process Manager - Patent & IP information products, schematics, digital publications, concept , books, magazines, scholarly articles, schematics
+2.
+3.
+
+1. 
