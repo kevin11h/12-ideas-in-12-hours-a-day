@@ -2890,3 +2890,8 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 
 
 1. https://www.youtube.com/watch?v=zgs_dCdR3_w
+
+https://bitcoinmagazine.com/articles/the-potential-and-the-reality-of-bitcoin-charity
+https://finance.yahoo.com/news/bitcoin-adoption-rising-ngo-sector-154326951.html
+https://www.coininsider.com/how-crypto-intersects-with-charity/
+https://finance.yahoo.com/news/bitcoin-adoption-rising-ngo-sector-154326951.html
