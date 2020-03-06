@@ -2902,3 +2902,7 @@ https://finance.yahoo.com/news/bitcoin-adoption-rising-ngo-sector-154326951.html
 1. Twitter - Eventbrite Hybrid
 2.
 3.
+
+1. God's Warrior Wisdom
+2. Christ's Courage & Curiosity
+3.  Spirit / Strength & Mind / Soul
