@@ -2931,3 +2931,10 @@ https://finance.yahoo.com/news/bitcoin-adoption-rising-ngo-sector-154326951.html
 1. Aquarius Coinsultancy - Ask 100 big companies which cryptocurrency bitcoin blockchain startups they desire to acquire to meet their internal needs
 2. Aquarius Coinsultancy - Educational Nonprofit Research & Development & Publications Arm - Ask 100 big companies which cryptocurrency bitcoin blockchain payments fintech startups they desire to acquire to meet their internal needs
 
+1. Ideas & Traffic Marketing Test websites wisdom
+2. Website 1-Pager One Pager on Aquarius Coinsultancy "Acquisition Solutions" / products provider
+
+1. Build & Buy Bridges Collect Traffic Toll Transactions Fees
+2. Build & Buy as you go building code
+
+Website 1-Pager One Pager on Aquarius Coinsultancy "Acquisition Solutions" / products provider
