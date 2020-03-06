@@ -2906,3 +2906,12 @@ https://finance.yahoo.com/news/bitcoin-adoption-rising-ngo-sector-154326951.html
 1. God's Warrior Wisdom
 2. Christ's Courage & Curiosity
 3.  Spirit / Strength & Mind / Soul
+
+
+1. Blockchain Birthday
+2. Bitcoin Birthday Gifts
+3. bitcoin birthday gift protocl
+
+1. Slack x <> App Birthday / Email hybrid Ads
+2.
+3.
