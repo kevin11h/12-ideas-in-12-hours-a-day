@@ -2915,3 +2915,19 @@ https://finance.yahoo.com/news/bitcoin-adoption-rising-ngo-sector-154326951.html
 1. Slack x <> App Birthday / Email hybrid Ads
 2.
 3.
+
+1. what is an orphan inode?
+2. write Stanford blockchain bitcoin medium blogpost on reflection & learning
+3. Ask100
+
+1. A100 = Ask100.co
+2.
+3.
+
+1. Ask 100 big companies well funded institutinal public traded 
+2. Acquio - Ask
+3. Aquarius - Ask 100 big companies institutional which startups they desire to acquire Consultancy - Create startup new teams or Match existing startups Consultancy
+
+1. Aquarius Coinsultancy - Ask 100 big companies which cryptocurrency bitcoin blockchain startups they desire to acquire to meet their internal needs
+2. Aquarius Coinsultancy - Educational Nonprofit Research & Development & Publications Arm - Ask 100 big companies which cryptocurrency bitcoin blockchain payments fintech startups they desire to acquire to meet their internal needs
+
