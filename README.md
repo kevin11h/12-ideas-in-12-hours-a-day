@@ -2895,3 +2895,10 @@ https://bitcoinmagazine.com/articles/the-potential-and-the-reality-of-bitcoin-ch
 https://finance.yahoo.com/news/bitcoin-adoption-rising-ngo-sector-154326951.html
 https://www.coininsider.com/how-crypto-intersects-with-charity/
 https://finance.yahoo.com/news/bitcoin-adoption-rising-ngo-sector-154326951.html
+
+2. AQUA Acquistion Consultancy - Acquisition Consult - Listen & Learn what Big Tech companies would like to acquire / buy a startup before creating one (Acquire / Buy before / Creations companies startup)
+3.
+
+1. Twitter - Eventbrite Hybrid
+2.
+3.
