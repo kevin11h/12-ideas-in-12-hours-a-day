@@ -2951,3 +2951,10 @@ Website 1-Pager One Pager on Aquarius Coinsultancy "Acquisition Solutions" / pro
 
 
 1. Healthy Heavenly Hygienic Habits Organizatiol Discernment Categorization Containers Packaging Labeling Verbal Word Symbolic Intelligence Aptitude
+2. OneCal
+
+1. OneCalendar Chrome Browser Plugin
+
+1. OneCal Cross Broser Plugin Date Detector Recognition iCal file format Sync time dates Appointment Notifcatinos & email reminders
+
+1. OneCal Cross Browser Plugin Date Detector
