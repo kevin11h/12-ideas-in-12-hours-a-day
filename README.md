@@ -2940,3 +2940,10 @@ https://finance.yahoo.com/news/bitcoin-adoption-rising-ngo-sector-154326951.html
 Website 1-Pager One Pager on Aquarius Coinsultancy "Acquisition Solutions" / products provider
 
 1."Building Bridges Between Buyers Acquirers & Startups Solutions"
+2. GitHub Autostar
+3. AutoStar Github projects
+
+1. Machine Learning Predictive Analytics which GitHub Project Code is successful **AutoStar**
+2. 
+
+1. GitHub <> Chrome Plugin LeadGen Source Developer Emailsl
