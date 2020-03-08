@@ -2958,3 +2958,11 @@ Website 1-Pager One Pager on Aquarius Coinsultancy "Acquisition Solutions" / pro
 1. OneCal Cross Broser Plugin Date Detector Recognition iCal file format Sync time dates Appointment Notifcatinos & email reminders
 
 1. OneCal Cross Browser Plugin Date Detector
+
+1. Christian Text Verses Hotline
+
+1. Bible Verses Text line Text banking
+
+1. Save a Life foundation Textline motivational inspirational Life Changing verses Subsciption Scripture Service
+2. Anonymous Secret Scripure Service Textline
+
