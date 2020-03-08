@@ -2969,3 +2969,8 @@ Website 1-Pager One Pager on Aquarius Coinsultancy "Acquisition Solutions" / pro
 1. Start New Class Room for Bitcoin Programmers & Learners @Stanford Continuing Studies @Peralta Berkeley CC @CCSF city college SF @SJCC san jose city college @Ohlone College @Mission @42 School
 2.
 3.
+
+1. Women in Tech calendar
+2.
+
+1. Women in Technology events & Activity Calendar Schedule Dates
