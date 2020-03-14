@@ -8,7 +8,7 @@
 6. Song writing
 7. Patient
 8. Cryptonomicon Django
-9. Workbook "What good is it, my brothers, if someone says he has faith but does not have works? Can that faith save him? If a brother or sister is poorly clothed and lacking in daily food, and one of you says to them, “Go in peace, be warmed and filled,” without giving them the things needed for the body, what good is that? So also faith by itself, if it does not have works, is dead. But someone will say, “You have faith and I have works.” Show me your faith apart from your works, and I will show you my faith by my works"
+9. Workbook "What good is it, my brothers, if someone says he has faith but does not have works? Can that faith save him? If a brother or sister is poorly clothed and lacking in daily food, and one of you says to them, “Go in peace, be warmed and filled,” without giving them the things needed for the body, what good is that? So also faith by itsell, if it does not have works, is dead. But someone will say, “You have faith and I have works.” Show me your faith apart from your works, and I will show you my faith by my works"
 10. Alchemy Health
 11. Alchemy Wealth
 12. Alchemy Relationships
@@ -2875,106 +2875,6 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 2. Mobility Modeling (business model) Move model mobile mountain money
 3.
 
-1. Process Manager - Patent & IP information products, schematics, digital publications, concept , books, magazines, scholarly articles, schematics
-2.
-3.
+1. Process Manager - Patent & I
 
-1. Ebay-ETHBay-Update-Work-Experience-Evidence-Proof-of-Income-Work
- Unwatch 
-2.
-
-1. Ebay-ETHBay-Update-Work-Experience-Evidence-Proof-of-Income-Work
- Unwatch 
-2. Modeling Mobility Mobile Move Mountain Movement Momentum Motivatinal Money
-3.
-
-
-1. https://www.youtube.com/watch?v=zgs_dCdR3_w
-
-https://bitcoinmagazine.com/articles/the-potential-and-the-reality-of-bitcoin-charity
-https://finance.yahoo.com/news/bitcoin-adoption-rising-ngo-sector-154326951.html
-https://www.coininsider.com/how-crypto-intersects-with-charity/
-https://finance.yahoo.com/news/bitcoin-adoption-rising-ngo-sector-154326951.html
-
-2. AQUA Acquistion Consultancy - Acquisition Consult - Listen & Learn what Big Tech companies would like to acquire / buy a startup before creating one (Acquire / Buy before / Creations companies startup)
-3.
-
-1. Twitter - Eventbrite Hybrid
-2.
-3.
-
-1. God's Warrior Wisdom
-2. Christ's Courage & Curiosity
-3.  Spirit / Strength & Mind / Soul
-
-
-1. Blockchain Birthday
-2. Bitcoin Birthday Gifts
-3. bitcoin birthday gift protocl
-
-1. Slack x <> App Birthday / Email hybrid Ads
-2.
-3.
-
-1. what is an orphan inode?
-2. write Stanford blockchain bitcoin medium blogpost on reflection & learning
-3. Ask100
-
-1. A100 = Ask100.co
-2.
-3.
-
-1. Ask 100 big companies well funded institutinal public traded 
-2. Acquio - Ask
-3. Aquarius - Ask 100 big companies institutional which startups they desire to acquire Consultancy - Create startup new teams or Match existing startups Consultancy
-
-1. Aquarius Coinsultancy - Ask 100 big companies which cryptocurrency bitcoin blockchain startups they desire to acquire to meet their internal needs
-2. Aquarius Coinsultancy - Educational Nonprofit Research & Development & Publications Arm - Ask 100 big companies which cryptocurrency bitcoin blockchain payments fintech startups they desire to acquire to meet their internal needs
-
-1. Ideas & Traffic Marketing Test websites wisdom
-2. Website 1-Pager One Pager on Aquarius Coinsultancy "Acquisition Solutions" / products provider
-
-1. Build & Buy Bridges Collect Traffic Toll Transactions Fees
-2. Build & Buy as you go building code
-
-Website 1-Pager One Pager on Aquarius Coinsultancy "Acquisition Solutions" / products provider
-
-1."Building Bridges Between Buyers Acquirers & Startups Solutions"
-2. GitHub Autostar
-3. AutoStar Github projects
-
-1. Machine Learning Predictive Analytics which GitHub Project Code is successful **AutoStar**
-2. 
-
-1. GitHub <> Chrome Plugin LeadGen Source Developer Emailsl
-2. Cryptocurrency Hardware Waletl Trezor - Tile Tracer Tracker Geolocational Hybrid Product Value Security Storage
-
-
-1. Healthy Heavenly Hygienic Habits Organizatiol Discernment Categorization Containers Packaging Labeling Verbal Word Symbolic Intelligence Aptitude
-2. OneCal
-
-1. OneCalendar Chrome Browser Plugin
-
-1. OneCal Cross Broser Plugin Date Detector Recognition iCal file format Sync time dates Appointment Notifcatinos & email reminders
-
-1. OneCal Cross Browser Plugin Date Detector
-
-1. Christian Text Verses Hotline
-
-1. Bible Verses Text line Text banking
-
-1. Save a Life foundation Textline motivational inspirational Life Changing verses Subsciption Scripture Service
-2. Anonymous Secret Scripure Service Textline
-
-1. Start New Class Room for Bitcoin Programmers & Learners @Stanford Continuing Studies @Peralta Berkeley CC @CCSF city college SF @SJCC san jose city college @Ohlone College @Mission @42 School
-2.
-3.
-
-1. Women in Tech calendar
-2.
-
-1. Women in Technology events & Activity Calendar Schedule Dates
-2. https://github.com/kevin11h/Plancast-Webflower-StartupDigest-Calendars
-
-1. AMWF Music Custom USB https://www.customusb.com/cart/index.php?route=checkout/checkout
-2. https://medium.com/ampleforth/is-bitcoin-trending-from-normative-to-positive-economics-311f8f4c8ef6
+1. https://www.discalbot.com
