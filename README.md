@@ -2882,3 +2882,7 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 3.
 
 1. https://aleteia.org/2018/12/16/3-healing-effects-of-music-on-your-body/
+2.
+
+1. https://www.forbes.com/sites/alexkonrad/2020/03/13/zoom-video-coronavirus-eric-yuan-schools
+2.
