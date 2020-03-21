@@ -2920,3 +2920,5 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 1. numis.news.ai
 2.
 3.
+
+1. https://cointelegraph.com/news/does-bitcoin-have-intrinsic-value-or-is-it-based-on-thin-air
