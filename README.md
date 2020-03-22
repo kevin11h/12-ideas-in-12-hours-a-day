@@ -2929,3 +2929,7 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 1. Cointelegraph MP3 Audio Readings Podcast Daily Radio Newsletter
 2. Automated App for https://github.com/kevin11h/12-ideas-in-12-hours-a-day/edit/master/README.md
 3.
+
+1. News = Change Views Romans 12:2
+2. GOOD NEWS = GOSPEL
+3.
