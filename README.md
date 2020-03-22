@@ -2922,3 +2922,10 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 3.
 
 1. https://cointelegraph.com/news/does-bitcoin-have-intrinsic-value-or-is-it-based-on-thin-air
+
+
+1. Podcast RSS Audio MP3 Subscription PLayList network
+
+1. Cointelegraph MP3 Audio Readings Podcast Daily Radio Newsletter
+2. Automated App for https://github.com/kevin11h/12-ideas-in-12-hours-a-day/edit/master/README.md
+3.
