@@ -2945,3 +2945,6 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 4. https://www.youtube.com/watch?v=5Xbd1e91ni4
 5. https://www.youtube.com/watch?v=U_Oa8tTY-00
 
+1. Car Miner
+2. Car Coin Crypto Miner
+3.
