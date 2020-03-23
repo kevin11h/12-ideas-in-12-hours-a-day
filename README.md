@@ -2933,3 +2933,6 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 1. News = Change Views Romans 12:2
 2. GOOD NEWS = GOSPEL
 3.
+
+# anchor.fm
+1. https://anchor.fm/techlead/episodes/How-to-start-a-Side-Hustle-What-I-wish-I-knew-as-a-millionaire-ebm69b
