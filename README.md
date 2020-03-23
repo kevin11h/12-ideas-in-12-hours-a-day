@@ -2936,3 +2936,12 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 
 # anchor.fm
 1. https://anchor.fm/techlead/episodes/How-to-start-a-Side-Hustle-What-I-wish-I-knew-as-a-millionaire-ebm69b
+2.
+3.
+
+1. # anchor.fm
+2. Cointelegraph MP3 Audio Readings Podcast Daily Radio Newsletter
+3. Automated App for https://github.com/kevin11h/12-ideas-in-12-hours-a-day/edit/master/README.md
+4. https://www.youtube.com/watch?v=5Xbd1e91ni4
+5. https://www.youtube.com/watch?v=U_Oa8tTY-00
+
