@@ -2952,3 +2952,9 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 1. Music Miner = Music USB + Car Crypto Miner Hybrid
 2.
 3.
+
+1. CodeTuts Create Music Player App Android
+2. https://code.tutsplus.com/tutorials/create-a-music-player-on-android-project-setup--mobile-22764
+3. 
+4.
+5.
