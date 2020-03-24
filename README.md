@@ -2948,3 +2948,7 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 1. Car Miner
 2. Car Coin Crypto Miner
 3.
+
+1. Music Miner = Music USB + Car Crypto Miner Hybrid
+2.
+3.
