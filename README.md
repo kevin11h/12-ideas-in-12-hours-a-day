@@ -2958,3 +2958,15 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 3. 
 4.
 5.
+
+
+1. Tuts
+2. 
+
+1. LinkedIn x < Eventbrite Cross-Poster
+
+1. Perishables vs. Products (Foods vs. Clothes News Wineskin Luke 5-6)
+2. New Wine Store Parable Jesus Luke 5-6
+3. Clothes & Wine Garment Investible Appreciating Drinks Special Libations / Religious Expensive Luxury Celebratory Party!
+4.
+5. Word = Way Shopify Christian Theme Clothing Store on Shopify
