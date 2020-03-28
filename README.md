@@ -2999,3 +2999,12 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 1. https://www.crowdfundinsider.com/2020/03/159287-peoples-bank-of-china-is-reportedly-inching-closer-to-issuing-a-digital-yuan/
 2. youtube.com/watch?v=LszOt51OjXU
 3.
+
+
+1.
+2.
+3.
+
+1. https://en.wikipedia.org/wiki/Transfiguration_of_Jesus
+2. https://www.pocketmindfulness.com/live-in-the-present-moment/
+3. https://plato.stanford.edu/entries/eternity/
