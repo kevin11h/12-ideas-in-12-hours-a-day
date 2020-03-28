@@ -3008,3 +3008,10 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 1. https://en.wikipedia.org/wiki/Transfiguration_of_Jesus
 2. https://www.pocketmindfulness.com/live-in-the-present-moment/
 3. https://plato.stanford.edu/entries/eternity/
+
+
+1. Philosophy of Cash Flow
+2. Wealth Dragons
+3. Thoughts Pascal
+4. Secrets Golden Flower
+5.
