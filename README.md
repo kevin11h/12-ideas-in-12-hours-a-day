@@ -2987,3 +2987,11 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 3. Crypto CandleStick Chart Star Chart
 4. Caster List
 5. CoinCast CrownCast
+
+1. https://www.tradersmagazine.com/departments/fx/bank-of-china-and-refinitiv-launch-price-prediction-app/
+2. CoinTelegraph App Mobile 1st
+3. CoinDesk App Mobile 2nd phone
+
+1. 
+2.
+3.
