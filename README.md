@@ -3062,3 +3062,12 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 1. App API for Zoom US Plugins Ecosystem Sustainability Scalability
 
 https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
+
+1. Independently Wealthy
+2. Independent Wealth
+3. Independence Time
+4. Depend on God. Trust in Christ
+
+1. https://www.youtube.com/watch?v=FNSWVSKijx0
+2.
+3.
