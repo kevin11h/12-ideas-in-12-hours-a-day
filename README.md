@@ -3053,6 +3053,12 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 2. OpenSource SlideShare 
 3. New Name New Idea SlideShare for Investors Angels Founders Pitchers, Small Businesses Bizs
 
+1. SlidesMaster - Like ToastMasters Power Point PResentations Presentations
+2. 
+
+1. SlidesMaster - Like SlidesShow RoadShow ToastMasters Power Point PResentations Presentations
+2. 
+
 
 
 
