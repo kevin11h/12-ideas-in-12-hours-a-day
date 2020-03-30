@@ -3033,3 +3033,30 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 3. Exchange (Direct)
 4. Transaction (Settlement Passive Product)
 
+1. AMXF AMWF SnowBunny Shopify Lingerie
+2. Leverage Current Assets
+3. 
+
+1. Where are your current assets?
+2. Skills Pay the Bills
+3. 
+
+1. File Format Mastery
+2. Audio mp3 wav pdf excel exl doc docx nsft format master
+3. 
+
+1. SlideShare Mastery SlidesMaster Excel
+2. 
+3. 
+
+1. New Ideas how to open source SlideShare  Mastery SlidesMaster Excel
+2. OpenSource SlideShare 
+3. New Name New Idea SlideShare for Investors Angels Founders Pitchers, Small Businesses Bizs
+
+
+
+
+
+
+
+
