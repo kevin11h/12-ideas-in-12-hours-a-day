@@ -3061,8 +3061,4 @@ https://www.youtube.com/watch?v=nxP1bz4k3G0
 
 1. App API for Zoom US Plugins Ecosystem Sustainability Scalability
 
-
-
-
-
-
+https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
