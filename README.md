@@ -3075,3 +3075,8 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. shopify crypto lingerie store
 2. shopify AMWF AMXF Music Store
 3.
+
+
+1. Detailed Designmanship
+2. Intelligent Design
+3.
