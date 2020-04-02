@@ -3080,3 +3080,8 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. Detailed Designmanship
 2. Intelligent Design
 3.
+
+1. Hero City https://youtu.be/TBu7cWXaR38
+2. Real / Unofficial BTC LTC gold x silver precious metals
+3. crypto x bullion exchange
+4. financial storm https://www.youtube.com/watch?v=UDsAkXKighY&feature=emb_rel_end
