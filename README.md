@@ -3095,3 +3095,7 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. https://www.gotquestions.org/who-was-Asaph.html
 2. CASH FLOW
 3.
+
+1. crypto calculator
+2.
+3.
