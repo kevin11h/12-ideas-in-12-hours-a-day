@@ -3097,5 +3097,9 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 3.
 
 1. crypto calculator
-2.
+2. crypto calendar
+3. crypto candlestick charts 
+
+1. Next minecraft / lego game?
+2. Blockcraft?
 3.
