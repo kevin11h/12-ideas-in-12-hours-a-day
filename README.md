@@ -3092,3 +3092,6 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 4. Affiliate Networks
 5. Proof Demonstration of Cash Flow
 
+1. https://www.gotquestions.org/who-was-Asaph.html
+2. CASH FLOW
+3.
