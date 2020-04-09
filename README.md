@@ -3121,3 +3121,7 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. https://www.reddit.com/r/financialindependence/comments/68a6dg/im_that_multimillionaire_app_developer_who/
 2.
 3.
+
+1.  https://www.youtube.com/watch?v=ZEW_dq_5XxI&feature=youtu.be
+2. https://www.reddit.com/r/financialindependence/comments/68a6dg/im_that_multimillionaire_app_developer_who/
+3.
