@@ -3117,3 +3117,7 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. coincaster
 2. coincastle
 3.
+
+1. https://www.reddit.com/r/financialindependence/comments/68a6dg/im_that_multimillionaire_app_developer_who/
+2.
+3.
