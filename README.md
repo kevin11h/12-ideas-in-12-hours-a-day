@@ -3109,3 +3109,11 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 3.
 4.
 5. https://cointelegraph.com/news/what-on-chain-analytics-tell-us-about-bitcoin-transactions-in-2020
+
+1. Fractal Flower Power
+2. Energy Study Fruit Passin Seeds
+3. Fractal Fruits
+
+1. coincaster
+2. coincastle
+3.
