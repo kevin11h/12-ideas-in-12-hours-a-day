@@ -3127,4 +3127,7 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 3.
 
 1. https://asiatimes.com/2020/04/china-rolls-out-the-health-silk-road/
-2. NOGA
+2. NOGA - Yoga Christianity
+
+1. https://issuu.com/scaughdt_iam/docs/the_cult_of_paul
+
