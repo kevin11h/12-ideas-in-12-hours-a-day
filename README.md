@@ -3134,3 +3134,7 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. dead curious 
 2. curious + courageous + Christ crypto warrior
 3. wisdom warrior God
+
+1. Bitcoin Cryptocurrency Mining Miners peg on Proof of Useful Work search for Gold
+2. Bitcoin Cryptocurrency Mining Miners peg on Proof of Useful Work search for Gold Space Geomining
+3.
