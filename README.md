@@ -3131,3 +3131,6 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 
 1. https://issuu.com/scaughdt_iam/docs/the_cult_of_paul
 
+1. dead curious 
+2. curious + courageous + Christ crypto warrior
+3. wisdom warrior God
