@@ -3138,3 +3138,6 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. Bitcoin Cryptocurrency Mining Miners peg on Proof of Useful Work search for Gold
 2. Bitcoin Cryptocurrency Mining Miners peg on Proof of Useful Work search for Gold Space Geomining
 3.
+
+1. Likeli-Hood - AI Algorithmic Optimisation Location for Living
+2.
