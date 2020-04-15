@@ -3142,4 +3142,12 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. Likeli-Hood - AI Algorithmic Optimisation Location for Living
 2.
 
-1. https://builtwith.com/yangtrain2020.com
+1. https://builtwith.com/yangtrain2020.com - SHOPIFY STORE AWESOME
+
+
+1. Crypto stack exchange Q&A Question and Answer cryptocurrency rewards - based
+2. Steemit Stats Google Trends API for Steemit Statistics / Payout Rewards System
+
+1. Living without Limits
+2.
+
