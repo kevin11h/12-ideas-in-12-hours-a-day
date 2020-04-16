@@ -3160,4 +3160,9 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 3.CodeWithMe - Video Streaming Twitch.tv for Programmers Live 
 
 1. how did moses know about creation to write genesis egyptian education atlantis?
+2. new crypto currency blockchain based linked in linkedin lunches profile
+3.
 
+
+1. SecondSupply 2ndSupply Founder Foundation
+2.
