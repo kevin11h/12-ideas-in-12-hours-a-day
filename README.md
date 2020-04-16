@@ -3166,3 +3166,5 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 
 1. SecondSupply 2ndSupply Founder Foundation
 2.
+
+1. sell Andrew Yang Chinese language translation books on wc
