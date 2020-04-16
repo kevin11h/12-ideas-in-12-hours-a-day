@@ -3151,4 +3151,10 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. Living without Limits
 2.
 
-1. CoinClick - Traffic SEO solutin via X Cryptocurrency X crossing via dela rosa
+1. CodeCoin Github x Cryptocurrency
+2.
+3.
+
+1. CodePay - Video Streaming Twitch.tv for Programmers Live 
+2.CodePal - Video Streaming Twitch.tv for Programmers Live 
+3.CodeWithMe - Video Streaming Twitch.tv for Programmers Live 
