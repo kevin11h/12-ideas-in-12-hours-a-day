@@ -3158,3 +3158,6 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. CodePay - Video Streaming Twitch.tv for Programmers Live 
 2.CodePal - Video Streaming Twitch.tv for Programmers Live 
 3.CodeWithMe - Video Streaming Twitch.tv for Programmers Live 
+
+1. how did moses know about creation to write genesis egyptian education atlantis?
+
