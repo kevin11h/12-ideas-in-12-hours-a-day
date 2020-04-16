@@ -3172,3 +3172,7 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 3. Message nataly news RC delivery
 4.
 5.
+
+
+1. Typically Two-Hour TimeBox #T3
+2.
