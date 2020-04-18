@@ -3181,3 +3181,8 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 2. Emergency Inventory Survey
 
 1. LikeSite - Browser Plugin for Liking website URLs
+2.
+3.
+
+1. Saving vs. Rationing = Rationality (Reason)
+2.
