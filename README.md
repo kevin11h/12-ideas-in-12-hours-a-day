@@ -3186,3 +3186,6 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 
 1. Saving vs. Rationing = Rationality (Reason)
 2.
+
+1. Stats Star Communicate Clearly Clear Strong Communication Skills Verbal Symbolic Mathematical
+2.
