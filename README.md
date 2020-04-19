@@ -3195,3 +3195,6 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 # Tartarian Symphony
 
 # Tales of Tartaria / Symphonia
+
+1. Not which APIs are good for big companies, them, others WHICH LANGUAGES, TOOLS & APIs BENEFIT YOU?
+2.
