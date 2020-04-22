@@ -3214,3 +3214,11 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. GrowthCast Top Podcast List Recommendation System!
 2.
 3.
+
+1. https://github.com/kevin11h/Fish-Chips-Potato-and-Salmon-Chips-With-Gods-Words-and-Bible-Verses-Inscribed-Written/blob/master/README.md
+2.
+3.
+
+1. https://bustedhalo.com/questionbox/what-does-the-fish-with-the-coin-in-its-mouth-symbolize-in-matthew-17
+2.
+3.
