@@ -3226,3 +3226,7 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. https://github.com/kevin11h/Fish-Chips-Potato-and-Salmon-Chips-With-Gods-Words-and-Bible-Verses-Inscribed-Written
 2.
 3.
+
+1. Create amwf database sell 5K user data to customers AMWF PUA vendors coaches leadership $100 each - factor in time spent building the database collecting contacts - one piece, khan,  jt, lin, abcs, jeff, vince, tran , even AVideo network stars James, KenKong, Rick Lee, Alvin banana, JeshPUA
+2. Prove demonstrate show how email list made me money $100 each upsale upsell 
+3.
