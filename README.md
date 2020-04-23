@@ -3245,3 +3245,7 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 3. 
 4. How to return ROI revenue 400K/5K = 80X - 70x ? Metcalfe Law?
 5. 400K = 20K * 20K Or even 4x - 5X 4 times return?
+
+1. Commodity silver exchange to crypto litecoin referral rewards network
+2.
+3.
