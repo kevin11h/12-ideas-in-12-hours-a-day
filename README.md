@@ -3249,3 +3249,7 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. Commodity silver exchange to crypto litecoin referral rewards network
 2.
 3.
+
+1. Automate = Create ML machinelearning model filter AMXF AMWF users Stream input data daily
+2. Chron job work automate automatically collect username stream input income Stream dream data daily night revenue source
+3.
