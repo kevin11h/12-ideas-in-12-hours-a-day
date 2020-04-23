@@ -3227,7 +3227,7 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 2.
 3.
 
-1. Create amwf database sell 5K user data to customers AMWF PUA vendors coaches leadership $100 each - factor in time spent building the database collecting contacts - one piece, khan,  jt, lin, abcs, jeff, vince, tran , even AVideo network stars James, KenKong, Rick Lee, Alvin banana, JeshPUA, seeking Arr Wade 
+1. Create amwf database sell 5K user data to customers AMWF PUA vendors coaches leadership $100 each - factor in time spent building the database collecting contacts - one piece, khan,  jt, lin, abcs, jeff, vince, tran , even AVideo network stars James, KenKong, Rick Lee, Alvin banana, JeshPUA, seeking Arr Wade , Liu, DXO Group
 2. Prove demonstrate show how email list made me money $100 each upsale upsell 
 3.
 
