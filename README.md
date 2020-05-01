@@ -3268,3 +3268,6 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 
 1. Pioneers And Pirates!
 # 2. Chron Scheduler Calendar
+
+1. Grandma Cryptocurrency Bitcoin Baby boomer currency conversion consultant #NaNa Coin
+2.
