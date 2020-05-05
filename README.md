@@ -3274,3 +3274,30 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 3.
 
 1. 100B - Stars Neurons -  Mental Wellness Social Network - Sleep Dreams Music Meditatino Exercise Journaling Diet Neuron Nutrition Books Friends Events & Activities
+2.
+
+1. Safe Strong Strollers Safety Infants - used stroller donations wheels world
+2.
+3. starseed microventures mVC capital
+
+1. Edmond broke book - Ask New Book
+2. Healthy Wisdom > vs. wealth + war
+3.
+
+1. E = mc2 = energy = motivation matter objective x s3 = motivation x smallscalablesustainablestartingsteps
+2. word movement #energy
+3. W = Fd = mxaxd = m * d3 / t2 #work time invest in more mobility space - work for wisdom invest health not wealth not war
+4. L = o/i = result(s) / time invested #feedback time   # Pareto Efficiency 80% / 20% /1 5% /2 1% /3 0.002%
+5.  Metcalfe motivation network effect = V(n) = n2 #people space neural network groups fire & wire 5 Book Mentor 2 Quadratic grwoth
+5.A. Box Method - Categorize in Quaternity tetraspace 4 boxes COLOR COdE #Rule of 4 Quaternity Time Table Fruit Tree Apple Orange Boxes 
+6. Exponential Growth Rate Scalability Return on Investment = I = Pe^rt = P(1 + r/n)^t -> 1% Per Pay Day  = 3800% Per Year Annually #seed growth tomato seed
+7. Fibonacci Formula Fx = F_x-1 + F_x-2 # Money follows a formula Lead with Learning Love Life fibonacci food good
+7A. Fibonacci Tree / Decision Tree Prioritize
+8. Priority Tree / Triage Classification Decision Tree Decision Matrix #eisenhower matrix
+8.A 11. Probability Likelihood A Priori Tree Weighted Tree Fruits Weighted Fruits Tree
+9. Assets = Property / Product x Cashflow Growth Rate = #Customers x Transactions / Customer x  $ Price Paid Per / Customer # 1 One Time Exchange #1 Time TrAnsaction
+10. Pareto Efficiency 80% / 20%
+
+12. Text generation - How to know to say write the right words?
+
+
