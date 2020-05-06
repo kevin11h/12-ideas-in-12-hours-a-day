@@ -3301,3 +3301,6 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 12. Text generation - How to know to say write the right words?
 
 
+1. Healthy Wisdom not waste Wealth Waste War Wealth
+2.
+3.
