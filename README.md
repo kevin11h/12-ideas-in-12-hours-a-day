@@ -3307,3 +3307,5 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 
 1. NaNa Vouches Real Retirement Senior Security 
 2. Crypto Credit Ratings Agency
+
+1. https://fs.blog/books/
