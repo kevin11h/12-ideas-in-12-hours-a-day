@@ -3304,3 +3304,6 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. Healthy Wisdom not waste Wealth Waste War Wealth
 2.
 3.
+
+1. NaNa Vouches Real Retirement Senior Security 
+2. Crypto Credit Ratings Agency
