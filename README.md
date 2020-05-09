@@ -3309,3 +3309,8 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 2. Crypto Credit Ratings Agency
 
 1. https://fs.blog/books/
+2.
+3.
+
+1. NaNa Vouches Real Retirement Senior Security 
+2. Mana Bread Loaf Litecoin Vouchers Mana Matchmaker Questionnire Survey which wallet is best for you?
