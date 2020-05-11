@@ -3314,3 +3314,17 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 
 1. NaNa Vouches Real Retirement Senior Security 
 2. Mana Bread Loaf Litecoin Vouchers Mana Matchmaker Questionnire Survey which wallet is best for you?
+
+1. Used Bicycles -> Convert to Wheelchairs Foundation
+2.
+3.
+
+1. Learn & Earn Crypto By Ratings & Reviews the News Review Truth in News 7 Stars Scale
+2. Crypto Vote (Ratings & Reviews Yelp Like Site)
+3. Survey Crypto Coin Answer Questions Polls Votes Learn & Earn Crypto Credit
+4. WalletWich MatchMaker
+5.
+
+1. DataArt Daa Visualization blog
+2.
+3.
