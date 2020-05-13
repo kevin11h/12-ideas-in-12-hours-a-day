@@ -3328,3 +3328,121 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. DataArt Daa Visualization blog
 2.
 3.
+
+1. bitgirl bitcoin woman warriors amazonians kevin's angels entourage
+
+1. Perishables vs. Products (Foods vs. Clothes News Wineskin Luke 5-6)
+2. New Wine Store Parable Jesus Luke 5-6
+3. Clothes & Wine Garment Investible Appreciating Drinks Special Libations / Religious Expensive Luxury Celebratory Party!
+4.
+5. Word = Way Shopify Christian Theme Clothing Store on Shopify
+
+1. CryptoCalendar
+2. CryptoCandlestick Chart Star Chart Candle Lamp
+3. CryptoCast (Crypto Currency Podcast)
+
+1. 
+2. 
+
+1. Venmo for Parents - Newly Wed Couples New Parents Paypal 
+2. paygal
+3.
+
+1. Cowncast Premium Products & Programs Podcasts Star
+2. Crypto Calendar
+3. Crypto CandleStick Chart Star Chart
+4. Caster List
+5. CoinCast CrownCast
+
+1. https://www.tradersmagazine.com/departments/fx/bank-of-china-and-refinitiv-launch-price-prediction-app/
+2. CoinTelegraph App Mobile 1st
+3. CoinDesk App Mobile 2nd phone
+
+1. 
+2.
+3.
+
+1. https://www.crowdfundinsider.com/2020/03/159287-peoples-bank-of-china-is-reportedly-inching-closer-to-issuing-a-digital-yuan/
+2. youtube.com/watch?v=LszOt51OjXU
+3.
+
+
+1.
+2.
+3.
+
+1. https://en.wikipedia.org/wiki/Transfiguration_of_Jesus
+2. https://www.pocketmindfulness.com/live-in-the-present-moment/
+3. https://plato.stanford.edu/entries/eternity/
+
+
+1. Philosophy of Cash Flow
+2. Wealth Dragons
+3. Thoughts Pascal
+4. Secrets Golden Flower
+5.
+
+1. Audio Book and & Podcast Businesses Video "Streaming"
+2. e-Learning! Good constant
+3
+
+1. Audio Aural & Aromatic Scent Ascent business
+2. 
+3
+
+1. work hard heal hand heal heel feet foot
+2. browser chrome plugin for currency monetary exchanges
+3
+
+1. Transfer
+2. Inheritance Children Wealth Estate Transfer Estate Planning
+3. Exchange (Direct)
+4. Transaction (Settlement Passive Product)
+
+1. AMXF AMWF SnowBunny Shopify Lingerie
+2. Leverage Current Assets
+3. 
+
+1. Where are your current assets?
+2. Skills Pay the Bills
+3. 
+
+1. File Format Mastery
+2. Audio mp3 wav pdf excel exl doc docx nsft format master
+3. 
+
+1. SlideShare Mastery SlidesMaster Excel
+2. 
+3. 
+
+1. New Ideas how to open source SlideShare  Mastery SlidesMaster Excel
+2. OpenSource SlideShare 
+3. New Name New Idea SlideShare for Investors Angels Founders Pitchers, Small Businesses Bizs
+
+1. SlidesMaster - Like ToastMasters Power Point PResentations Presentations
+2. 
+
+1. SlidesMaster - Like SlidesShow RoadShow ToastMasters Power Point PResentations Presentations
+2. 
+
+1. App API for Zoom US Plugins Ecosystem Sustainability Scalability
+
+https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
+
+1. Independently Wealthy
+2. Independent Wealth
+3. Independence Time
+4. Depend on God. Trust in Christ
+
+1. https://www.youtube.com/watch?v=FNSWVSKijx0
+2.
+3.
+
+1. shopify crypto lingerie store
+2. shopify AMWF AMXF Music Store
+3.
+
+
+1. Detailed Designmanship
+2. Intelligent Design
+3.
