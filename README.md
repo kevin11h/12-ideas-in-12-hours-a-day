@@ -3491,3 +3491,7 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. Transportation - Leverage Bus Train Bicycle Motorcycle Stroller Carriage Wagon Rideshare Carpool Plane Ship Boat 
 2. Wheels Carriage Stroller Tricycle Wheelchair 
 3. Bicycle to Stroller & Wheelchair Charity Foundation
+
+1. MentressX women in technology network womentorship No gossip Fruit-Bearing Speech and Wisdom
+2.
+3.
