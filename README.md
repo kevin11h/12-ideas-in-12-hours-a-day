@@ -3495,3 +3495,32 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. MentressX women in technology network womentorship No gossip Fruit-Bearing Speech and Wisdom
 2.
 3.
+
+
+
+1. Perishables vs. Products (Foods vs. Clothes News Wineskin Luke 5-6)
+2. New Wine Store Parable Jesus Luke 5-6
+3. Clothes & Wine Garment Investible Appreciating Drinks Special Libations / Religious Expensive Luxury Celebratory Party!
+4.
+5.
+
+2. Food Pantry
+3. Cookbook List
+4. Portable Pizza
+5. Fish dish
+6. Canned goods
+7. Potato Carrots
+8. Corn. Dirty Rice + Spice
+
+1. Audio Book and & Podcast Businesses Video "Streaming"
+2. e-Learning! Good constant
+3
+
+1. Audio Aural & Aromatic Scent Ascent business
+2. 
+3
+
+
+1. Bitcoin Talk Spam AI/ML  https://bitcointalk.org/index.php?topic=5122452.0
+2. Bitcoin talk user language value BTC AI/ML
+
