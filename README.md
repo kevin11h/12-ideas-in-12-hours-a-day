@@ -3524,3 +3524,6 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. Bitcoin Talk Spam AI/ML  https://bitcointalk.org/index.php?topic=5122452.0
 2. Bitcoin talk user language value BTC AI/ML
 
+1. Common Cents Crypto Currency Credit Card CC CC2 Copper Fairy Faith Copper Luke 21:1-4 Faith Funny Money Crypto Copper Comodity Pair
+2. https://www.sacredspace.ie/content/luke-2112-19
+3.
