@@ -3532,5 +3532,9 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 2. 3 day water more less
 3.
 
-1.
+1. Dish Diary - Food-Only INstagram + AI ML recommendations daily dietary
 2.
+
+1. $30 dollars daily x 30 days monthly x 300 days yearly = CEO Take Home Pay 300K
+2.
+3.
