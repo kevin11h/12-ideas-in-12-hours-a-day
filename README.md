@@ -3538,3 +3538,5 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. $30 dollars daily x 30 days monthly x 300 days yearly = CEO Take Home Pay 300K
 2.
 3.
+
+1. ToolCHain Manager > Workflow Manager >Automation Manager > Production Manager > Product Manager
