@@ -3544,3 +3544,10 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 
 1. Santa Monica Clothing Clothes
 2.
+
+1. Coinquiry crypto Q&A questions site + cryptovote
+2. 
+3.
+
+1. Play Poker Crypto Poker Nights Collectible Cards + Educational Quotes
+2.
