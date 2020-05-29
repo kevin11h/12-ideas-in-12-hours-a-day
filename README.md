@@ -3553,3 +3553,6 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 2.
 
 1. https://cointelegraph.com/news/lithuanias-central-bank-completes-blockchain-regulatory-research
+
+1. Exchangel Angel Network
+2.
