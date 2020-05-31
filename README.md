@@ -3568,3 +3568,9 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. Wafer Chips Snacks Funding Scholarships Educational Arm Card Food for Thought https://semianalysis.com/the-impending-chinese-nand-apocalypse/
 2. 
 3.
+
+1. Hobby Income, Not Always Active Income
+2.
+3.
+4.
+5. Crypto Income - Cryptocurrency Hobby Income
