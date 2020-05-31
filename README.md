@@ -3559,3 +3559,8 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 
 1. Developer APIs use Survey
 2. What are APIs you use currently? Languages, Tools, techniques, algorithms, frameworks
+3.
+
+1. github mutual connections connectivity counter degree social index indicator
+2.
+3.
