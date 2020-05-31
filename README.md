@@ -3564,3 +3564,7 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. github mutual connections connectivity counter degree social index indicator
 2.
 3.
+
+1. Wafer Chips Snacks Funding Scholarships Educational Arm Card Food for Thought https://semianalysis.com/the-impending-chinese-nand-apocalypse/
+2. 
+3.
