@@ -3583,3 +3583,11 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. actuary.io
 2.
 3.
+
+1. Register Ho Feng Shan & Emi Siao
+2.
+3.
+
+1. Digital Currenc & Virtual Goods
+2.
+3.
