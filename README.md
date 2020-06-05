@@ -3261,7 +3261,7 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 2.
 
 1. MailChimp Mastery
-2.
+2. New View Collaborative Filtering Find New WEbsites Recommendation Engine
 
 1. Start by a Statement.
 2
