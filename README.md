@@ -3593,3 +3593,8 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 3.
 
 ## Beginning of Beautiful Relationship
+1. Subscribe Coin $Subscribe
+2. Survey Coin $QUOD question coin? Q&A  Quid Silver Sterling Question coin?
+3. Copper Coin Coppery Fairy Faith Luke 21:1-4
+4. CryptoPulse Podcast 
+5. CryptoPulse Newsletter
