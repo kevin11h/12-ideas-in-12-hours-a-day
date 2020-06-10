@@ -3602,3 +3602,6 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 3. Copper Coin Coppery Fairy Faith Luke 21:1-4
 4. CryptoPulse Podcast 
 5. CryptoPulse Newsletter 
+
+# InsurTech
+Life Insurance Blockchain
