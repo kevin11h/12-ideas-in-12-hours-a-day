@@ -3605,3 +3605,5 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 
 # InsurTech
 Life Insurance Blockchain
+
+## 1.  100 Seed 100Seed.co Startups Seed INvest 10 Per Week x 52 Weeks = 520 > 500 startups
