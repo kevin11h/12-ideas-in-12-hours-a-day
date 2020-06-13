@@ -3287,7 +3287,7 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 1. E = mc2 = energy = motivation matter objective x s3 = motivation x smallscalablesustainablestartingsteps
 2. word movement #energy
 3. W = Fd = mxaxd = m * d3 / t2 #work time invest in more mobility space - work for wisdom invest health not wealth not war
-4. L = o/i = result(s) / time invested #feedback time   # Pareto Efficiency 80% / 20% /1 5% /2 1% /3 0.002%
+4. Leverage & Markup Cost & Return on Investment % ROI ABC advantage benefit cost map table L = o/i = result(s) / time invested #feedback time   # Pareto Efficiency 80% / 20% /1 5% /2 1% /3 0.002%
 5.  Metcalfe motivation network effect = V(n) = n2 #people space neural network groups fire & wire 5 Book Mentor 2 Quadratic grwoth
 5.A. Box Method - Categorize in Quaternity tetraspace 4 boxes COLOR COdE #Rule of 4 Quaternity Time Table Fruit Tree Apple Orange Boxes 
 6. Exponential Growth Rate Scalability Return on Investment = I = Pe^rt = P(1 + r/n)^t -> 1% Per Pay Day  = 3800% Per Year Annually #seed growth tomato seed
@@ -3297,6 +3297,11 @@ https://www.coindesk.com/huobi-launching-cryptocurrency-exchange-traded-fund/
 8.A 11. Probability Likelihood A Priori Tree Weighted Tree Fruits Weighted Fruits Tree
 9. Assets = Property / Product x Cashflow Growth Rate = #Customers x Transactions / Customer x  $ Price Paid Per / Customer # 1 One Time Exchange #1 Time TrAnsaction
 10. Pareto Efficiency 80% / 20%
+11. Social Capital Metcalfe  Metcalfe motivation network effect = V(n) = n2 #
+11.A. 100 Bn Neuron Stars Mind Galaxy Beautiful billion neuron brain
+11.B. Bn Bandwidth Latency Throughtput Network Equations
+12. Equatinos of Happiness Table
+
 
 12. Text generation - How to know to say write the right words?
 
