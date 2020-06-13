@@ -3615,3 +3615,6 @@ Life Insurance Blockchain
 
 
 ## 1. AI Text Nerd Narrator Soothing Smart Sharp Female Voice of Sophia Wisdom
+
+## 1. LeadGen CoinmarketCap Team
+## 2. Leadgen Maria Mateo Iborra
