@@ -3618,3 +3618,4 @@ Life Insurance Blockchain
 
 ## 1. LeadGen CoinmarketCap Team
 ## 2. Leadgen Maria Mateo Iborra
+## 3. YEARBOOK pitch book project
