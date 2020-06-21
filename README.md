@@ -3621,3 +3621,7 @@ Life Insurance Blockchain
 ## 3. YEARBOOK pitch book project
 
 1. Make Love as a Creative and Generative Way to Live
+2.
+
+1. World Crypto College Travel Tour & Missinoary Commission
+2.
