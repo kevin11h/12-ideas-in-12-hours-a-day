@@ -3632,3 +3632,7 @@ Life Insurance Blockchain
 1. Crypto Hats
 2. https://www.fruitfullyliving.com/gird-up-your-loins/
 3. https://kgbuckeye.wordpress.com/2010/08/07/gird-your-loins/
+
+1. hats for sale & watches 
+2.
+3.
