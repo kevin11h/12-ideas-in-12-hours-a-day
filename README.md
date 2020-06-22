@@ -3636,3 +3636,11 @@ Life Insurance Blockchain
 1. hats for sale & watches 
 2.
 3.
+
+1. Money as Art
+2. Artwork Blockchain
+3. money Art cryptocurrency printing
+
+1. Money Prints
+2. Print MintChain
+3. Secure your art logo on physical digital crypto currency
