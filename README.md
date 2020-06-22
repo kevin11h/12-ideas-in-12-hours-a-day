@@ -3627,4 +3627,8 @@ Life Insurance Blockchain
 2.
 
 1. Make Mom Nadia Translate Chinese Books to Be ERadable readability matters
-2.
+2. Father's Day Send Out Evangelize Go Forth and Make Disciples Help Sell Books
+
+1. Crypto Hats
+2. https://www.fruitfullyliving.com/gird-up-your-loins/
+3. https://kgbuckeye.wordpress.com/2010/08/07/gird-your-loins/
