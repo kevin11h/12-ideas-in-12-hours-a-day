@@ -1,4 +1,4 @@
-# 12-ideas-in-12-hours-a-day
+"# 12-ideas-in-12-hours-a-day
 0.  MVT = Minimal Viable Tool.  Not even full-fledged product.  People (desire, demand) > Processes (physical acts) > Product (demand > design, testing)  Fork Knives (Steak) Spoons / Picks & Shovels
 1. Lunchdate -> optimize + monetize lunch hours (minimal viable "brunchwork")
 2. Tome 
@@ -3644,3 +3644,10 @@ Life Insurance Blockchain
 1. Money Prints
 2. Print MintChain
 3. Secure your art logo on physical digital crypto currency
+
+1. 
+2.
+
+1. crytocast CryptoPulse content leverage learn copy content Web & Mobile
+2. $DADI Data Dividend Cryptocurrency coin subscription smart contract terms & conditions improved decentralized share holder stakeholder
+3.
