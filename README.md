@@ -3674,3 +3674,28 @@ Hybrid Roles Amalgam
 3. Android APP mobile app 
 4. Portfolio projects; website; blog
 
+
+# 3 CrowdSource Copy Editing Strategies Solutions
+1. fiverr
+2. email Google forms sign up testers
+3. writer's club
+
+https://github.com/kevin11h/SefPublish-Path
+# 7 Stages Platforms to Bootstrap Book Production, Sales, Crowdfunding
+1. kickstarter
+2. indiegogo
+3. unbound
+4. pubslush
+5. leanpub
+6.GoFundMe
+7. Amazon
+8. Email Marketing
+
+# 7 Platforms for Book Sales Distribution
+1.Kindle (aamzon ebook)
+2.iBookStore (apple)
+3.  nook
+4.google play
+5. kobo
+6. leanpub
+7. P2P Peer Neighbors Numebrs Names Phone Cals
