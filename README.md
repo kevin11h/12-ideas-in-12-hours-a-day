@@ -3656,3 +3656,21 @@ Life Insurance Blockchain
 2. $COINCRAFT Cryptocurrency Starcraft with bitconi rewards
 3.http://archive.vn/qa4OZ
 4.
+
+# Quaternity-Titles
+**Hybrid**
+Hybrid Roles Amalgam
+1. Author
+2. Entrepreneur / Product Manager
+3. Software Developer Software Engineering / Programmer / Hacker / Coder
+4. Investor
+
+*5. Student Learner - Leader
+
+# Quaternity-Projects
+
+1. Ebook sales
+2. startup project startup bootstrapping & good hatting Hat MATH HAT
+3. Android APP mobile app 
+4. Portfolio projects; website; blog
+
