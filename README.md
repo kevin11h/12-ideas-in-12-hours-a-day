@@ -3699,3 +3699,13 @@ https://github.com/kevin11h/SefPublish-Path
 5. kobo
 6. leanpub
 7. P2P Peer Neighbors Numebrs Names Phone Cals
+
+1. Gratitude & Grace Grows Exponentially => ~100x Thinking TenX Thinking 100x Thankful Thinking 10x Thanking & Thinking Exponential Equation P = e^rt
+2. http://archive.vn/qNY0C
+# Microcosm = Macrocosm ~ Anatomy = Astronomy
+
+3. Happy Hackathon HApp 2 Months ~ 2 Weeks 10/20%
+4. Book Nook Reader = Kindle 3 Months ~ 3 Weeks 10/20%
+5. Mobile App Android= 1 Month ~ 1-2 Weeks Sprint Agility 
+6. Ruby Reader Book = 15 Months ~ 3 Months ~ 3 Weeks
+7. KWML King Warrior Magician Lover Quaternity Careers Consulting & Coaching = IDEA Investor Developer/Programmer/Coder Entrepreneur Author/Writer
