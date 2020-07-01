@@ -3709,3 +3709,5 @@ https://github.com/kevin11h/SefPublish-Path
 5. Mobile App Android= 1 Month ~ 1-2 Weeks Sprint Agility 
 6. Ruby Reader Book = 15 Months ~ 3 Months ~ 3 Weeks
 7. KWML King Warrior Magician Lover Quaternity Careers Consulting & Coaching = IDEA Investor Developer/Programmer/Coder Entrepreneur Author/Writer
+
+1. http://archive.vn/CFiFJ
