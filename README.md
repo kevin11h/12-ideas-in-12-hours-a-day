@@ -3714,5 +3714,9 @@ https://github.com/kevin11h/SefPublish-Path
 2. http://archive.vn/inK7t
 
 1. https://github.com/kevin11h/YoutubeVideoPrice-Cost-Predictor
+2. https://github.com/kevin11h/Two-Week-Take-Home-Hackathon-Hire-Hiring-Spree-Liquidity-Staking-2-Two-Week-Take-Home-Hire-Contracts
+3.
+
+# 1. https://github.com/kevin11h/Two-Week-Take-Home-Hackathon-Hire-Hiring-Spree-Liquidity-Staking-2-Two-Week-Take-Home-Hire-Contracts
 2.
 3.
