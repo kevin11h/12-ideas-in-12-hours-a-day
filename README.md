@@ -3724,3 +3724,5 @@ https://github.com/kevin11h/SefPublish-Path
 1. https://cointelegraph.com/news/ampleforth-launches-liquidity-program-to-target-uniswap-20
 2.https://cointelegraph.com/news/binance-ceo-cz-showcases-first-use-of-binance-card
 3.
+
+1. https://cointelegraph.com/news/binance-ceo-cz-showcases-first-use-of-binance-card
