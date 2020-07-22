@@ -3726,3 +3726,24 @@ https://github.com/kevin11h/SefPublish-Path
 3.
 
 1. https://cointelegraph.com/news/binance-ceo-cz-showcases-first-use-of-binance-card
+2.
+3.
+
+# 1. https://github.com/kevin11h/Numinous-Numis-Numismatic-Numismagic-Capital
+2.
+3.
+
+# 1. https://github.com/kevin11h/ZeroK-0K-Proof-Beer-Non-alcholic-Squarespace-Coder-Alchemical-Beverage-Non-Alcholic-Alchemical-Bever
+2.
+3.
+
+
+# 1. ARCTIC CODER ARCHIVIST AWARD WINNER BADGE MEDAL OF HONOR RECOGNITION PRESTIGE
+2. LOSE FIRST WIN AFTER
+3.
+
+
+# 1. https://tif.ssrc.org/2012/10/25/secularization-and-disenchantment/
+2. Numinous Numismagic Numismagical 
+3. Synchronicity Quaternity Careers
+
