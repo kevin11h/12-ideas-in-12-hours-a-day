@@ -3767,3 +3767,7 @@ https://github.com/kevin11h/SefPublish-Path
 # 1. https://github.com/kevin11h/Product-Referral-Social-Media-Network-Social-Media-Friends-Recommendations-for-Products-Purchasing-
 2.
 3.
+
+# 1. https://github.com/kevin11h/Bitcoin-Doordash-Postmates-Lyft-Uber-Delivery-Cost-Calculator-Converter-Estimator
+## 2. High User Daily Retention Apps High Usage Delivery calculator COmparator Cost rtaes Cost REveiwers Cost Rates Sights Sites like Slick Deals Fair Market Price Estimator
+3.
