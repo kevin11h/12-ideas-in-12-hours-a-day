@@ -3759,3 +3759,6 @@ https://github.com/kevin11h/SefPublish-Path
 
 # 1. https://github.com/kevin11h/Smart-Mobile-Phone-Skin-and-Cryptocurrency-Card-Shopify-Store-Sample-Poker-Decks-Designs-Style
 2.
+
+## 1. 700 Startups
+2. 
