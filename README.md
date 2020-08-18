@@ -3771,3 +3771,8 @@ https://github.com/kevin11h/SefPublish-Path
 # 1. https://github.com/kevin11h/Bitcoin-Doordash-Postmates-Lyft-Uber-Delivery-Cost-Calculator-Converter-Estimator
 ## 2. High User Daily Retention Apps High Usage Delivery calculator COmparator Cost rtaes Cost REveiwers Cost Rates Sights Sites like Slick Deals Fair Market Price Estimator
 3.
+
+
+1. HOLD-SCHOOL Idea for 501c 3 Education org - Younger Brother of MakeSchool and ProductSchool
+2. https://github.com/kevin11h/HOLD-SCHOOL---Younger-Brother-of-MakeSchool-and-ProductSchool
+3. 
