@@ -3776,3 +3776,8 @@ https://github.com/kevin11h/SefPublish-Path
 1. HOLD-SCHOOL Idea for 501c 3 Education org - Younger Brother of MakeSchool and ProductSchool
 2. https://github.com/kevin11h/HOLD-SCHOOL---Younger-Brother-of-MakeSchool-and-ProductSchool
 3. 
+
+
+1. https://github.com/kevin11h/VestSchool-HoldSchool
+2.
+3.
