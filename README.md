@@ -3781,3 +3781,5 @@ https://github.com/kevin11h/SefPublish-Path
 1. https://github.com/kevin11h/VestSchool-HoldSchool
 2.
 3.
+
+1. https://github.com/kevin11h/WordCraft-700-Word-Twitter-Posts-Longform-Longterm-Wordplay-Game-Pun-Wars
