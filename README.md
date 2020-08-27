@@ -3783,3 +3783,10 @@ https://github.com/kevin11h/SefPublish-Path
 3.
 
 1. https://github.com/kevin11h/WordCraft-700-Word-Twitter-Posts-Longform-Longterm-Wordplay-Game-Pun-Wars
+
+
+1. https://github.com/kevin11h/Luxury-Tickets-Titles-Blockchain-Certificates-
+2. https://github.com/kevin11h/Engineering-Creativity-Morning-Motivation-Daily-Inspiration-Workbook-Quotebook
+3. https://github.com/kevin11h/All-Air-industries
+4.
+5.
