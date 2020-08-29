@@ -3800,3 +3800,7 @@ https://github.com/kevin11h/SefPublish-Path
 3. https://github.com/kevin11h/Engineering-Creativity-Morning-Motivation-Daily-Inspiration-Workbook-Quotebook
 4. https://github.com/kevin11h/Home-Hangar-Private-Airstrip-Escape-Agricultural-Grape-Vineyard-Farmer-Plane-Firefighter-MedicalRe
 5.  Advertising Cards + Games Coupons + Game Codes + DIY How To Manueals Foldability + Pocket Protectors + Pocket Calculator + Crypto startup alert cards + 3D-Printer-Mobile-Phone-Case-Custom-Crypto-Case-Wallet-SW-QR-Code-Download-with-Crypto-Debit-Cred 
+
+1. https://github.com/kevin11h/Bible-Cut-Create-Connect-Trim-Workshop-Turn-1-DollarTree-Bibles-Into-Booklet-Series/blob/master/README.md
+2.
+3.
