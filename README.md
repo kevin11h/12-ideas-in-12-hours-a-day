@@ -3804,3 +3804,6 @@ https://github.com/kevin11h/SefPublish-Path
 1. https://github.com/kevin11h/Bible-Cut-Create-Connect-Trim-Workshop-Turn-1-DollarTree-Bibles-Into-Booklet-Series/blob/master/README.md
 2.
 3.
+
+
+1. https://github.com/kevin11h/Quaternity-Power-Projects/blob/master/README.md
