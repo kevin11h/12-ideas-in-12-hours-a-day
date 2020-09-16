@@ -3825,3 +3825,7 @@ https://github.com/kevin11h/SefPublish-Path
 # 1. https://github.com/kevin11h/CHOOSE-LIFE-MINISTRY
 2.
 3.
+
+# 1. CHOOSE LIFE OUTREACH https://github.com/kevin11h/CHOOSE-LIFE-MINISTRY
+2.
+3.
