@@ -1,5 +1,7 @@
 "# 12-ideas-in-12-hours-a-day
 0.  MVT = Minimal Viable Tool.  Not even full-fledged product.  People (desire, demand) > Processes (physical acts) > Product (demand > design, testing)  Fork Knives (Steak) Spoons / Picks & Shovels
+0.5. NO STEAK KNIVES TOOLS READING READERS BIBLE CHAPTERS AND STUDY GUIDE BIBLE BREADS CHAPTERS SECTIONS PACKETS PLUS PSALMS AND PROVERBS 2 FOR 1 1 free gift sample compilmentary + 1 Paid copy
+### 0.7. https://github.com/kevin11h/CHOOSE-LIFE-MINISTRY
 1. Lunchdate -> optimize + monetize lunch hours (minimal viable "brunchwork")
 2. Tome 
 3. Green Tea and Coffee
@@ -3820,3 +3822,6 @@ https://github.com/kevin11h/SefPublish-Path
 
 1. https://github.com/kevin11h/DPMN-Digital-Product-Manager-Network
  
+# 1. https://github.com/kevin11h/CHOOSE-LIFE-MINISTRY
+2.
+3.
