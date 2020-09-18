@@ -3829,3 +3829,7 @@ https://github.com/kevin11h/SefPublish-Path
 # 1. CHOOSE LIFE OUTREACH https://github.com/kevin11h/CHOOSE-LIFE-MINISTRY
 2.
 3.
+
+# 1. https://github.com/kevin11h/CHOOSE-LIFE-DEUTERONOMY-30-19-MIMNISTRY/blob/master/README.md
+2. Form 501c3 Non-profit partnerships with Pro Life Lobby and Life Insurance Companies Health Hedge Funds
+3.
