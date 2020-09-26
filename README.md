@@ -3836,3 +3836,8 @@ https://github.com/kevin11h/SefPublish-Path
 
 1. FAITH Tank Movement https://github.com/kevin11h/faith-tank-not-think-not-do-tank
 2. Attitude Addressing Change & Challenges
+
+
+1. $STIM stimulus UBI 
+2. $FINNISH complete finished Finland blockchain UBI implementation / translation
+3. 
