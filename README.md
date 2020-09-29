@@ -3841,3 +3841,8 @@ https://github.com/kevin11h/SefPublish-Path
 1. $STIM stimulus UBI 
 2. $FINNISH complete finished Finland blockchain UBI implementation / translation
 3. 
+
+1. https://github.com/kevin11h/UBI-MINCOME-4-MINTERNSHIP-4-weeks
+# Code Camp 2. https://github.com/kevin11h/blockchain-MINECRAFT-MINDSTORMS-MAKER-3DPRINTER-PYTHON-Pi-Raspberry-hybrid-project
+3. https://github.com/kevin11h/Podcast-for-Coding-Interview-Question-Podcast
+4. https://github.com/kevin11h/Tutorial-for-Cryptocurrency-Wallet- MOBILE APP
