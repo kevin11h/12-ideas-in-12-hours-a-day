@@ -3850,3 +3850,8 @@ https://github.com/kevin11h/SefPublish-Path
 1. https://github.com/kevin11h/startup-ide-a-SELL.ex-Sell.com-that-accepts-crypto-payments-methods
 2. $STIP
 3. $STIM
+
+
+1. https://github.com/kevin11h/Mobile-ActionReact-App-Crypto-Earn-Learn
+2. https://github.com/kevin11h/Askew-A-Skew-Charts-Crypto-Candle-Market-News-Website-App
+3. https://github.com/kevin11h/Kaggle-Contest-And-Devpost-And-StackExchange-Combined-Triplet-On-Blockchain-Pay-Out-Paid-Crypto-
