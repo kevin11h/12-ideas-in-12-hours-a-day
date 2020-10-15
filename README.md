@@ -3868,3 +3868,8 @@ https://github.com/kevin11h/SefPublish-Path
 3. Cheerleaders 4 Change Charity Ball Event
 4. Cheerleaders 4 Cause Fundraiser / PETA Model 4 (Climate) Change
 5.  (Existing already =) Blockchain Models <- Turn To Fundraising
+
+
+1. https://github.com/kevin11h/HAPPY-hackathon-HOUR
+2.
+3.
