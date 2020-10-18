@@ -3873,3 +3873,7 @@ https://github.com/kevin11h/SefPublish-Path
 1. https://github.com/kevin11h/HAPPY-hackathon-HOUR
 2.
 3.
+
+1. https://github.com/kevin11h/Crypto-Converter-Browser-Plugin-Convert-Price-popup-in-current-crypto-ticker-candle-prices-with-refe
+2.
+3.
