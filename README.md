@@ -3877,3 +3877,22 @@ https://github.com/kevin11h/SefPublish-Path
 1. https://github.com/kevin11h/Crypto-Converter-Browser-Plugin-Convert-Price-popup-in-current-crypto-ticker-candle-prices-with-refe
 2.
 3.
+
+
+1. https://github.com/kevin11h/CoinXedo-Crypto-TuXedo-CoinSuite-Apps-Network
+2. 
+3.
+4.
+5.
+6.
+7.
+
+A. LEADGEN (LEAGENDaire) (LEADGENAIRE)
+B. CRYPTO COMPARE PRICE CROSS SHOPPING ONLINE DIGITAL PURCHASES BROWSER PLUGIN + METAMASK WALLET
+1. Crypto Calculator 
+2. Crypto Ticker
+3. Crypto Rolodex Coinsultants $100 - $1,000 / hr
+4. Crypto Calendar + Map View (of events / activities) AD SPONSORSHIPS REVENUE
+5. Watch Wallet ($5000 max + Crypto Credit Future Value) 
+6. Learn & Earn Program VIDEO VIEW LIVESTREAM + QUIZ QUESTIONS REWARDS
+7. Watch / Alarm Wake UP Time Wake Up Watch
