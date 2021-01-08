@@ -3912,3 +3912,7 @@ https://github.com/kevin11h/kart--KART-CART-CARTA-COIN-POKERMON-POKER-CRYPTOCURR
 2. https://github.com/kevin11h/Cryptocurrency-Idea-Symbols-TABU-UNIVOTE-7-Seven-Figure-50-dollar-per-hour-payrate-commissions-bizmo/edit/main/README.md
 
 3. https://github.com/kevin11h/LEARN-COIN-LEARNING-VIDEOS-PLUS-CRYPTOCURRENCY-WALLET-Wa2u-WatchWallet-WaWa-Wa2tch-Wa2u
+
+
+1. https://github.com/kevin11h/-500-Dollars-Stimulus-Check-VestSchool-TradeSchool-AlgoSchool
+2. https://github.com/kevin11h/501c3-Education-CryptoCard-Crypto-Poker-Cards-VESTSChool-Little-Vegas-Real-Estate-Hotels-Crypto-Wall
