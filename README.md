@@ -1,3 +1,4 @@
+# Most Programmers are poor because they have poor \[HUMAN\] communication skills / womanagers / mana-Gem-ent
 "# 12-ideas-in-12-hours-a-day
 0.  MVT = Minimal Viable Tool.  Not even full-fledged product.  People (desire, demand) > Processes (physical acts) > Product (demand > design, testing)  Fork Knives (Steak) Spoons / Picks & Shovels
 0.5. NO STEAK KNIVES TOOLS READING READERS BIBLE CHAPTERS AND STUDY GUIDE BIBLE BREADS CHAPTERS SECTIONS PACKETS PLUS PSALMS AND PROVERBS 2 FOR 1 1 free gift sample compilmentary + 1 Paid copy
