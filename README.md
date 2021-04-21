@@ -3926,3 +3926,11 @@ https://github.com/kevin11h/kart--KART-CART-CARTA-COIN-POKERMON-POKER-CRYPTOCURR
 2. Digital Collectibles Apps
 
 1. $Codequest question earn rewards score board Kivy Python Flash Cards
+
+
+1. EBay $50Bn
+2. Amazon
+3. EBay $50Bn
+4. Amazon $1 Tn
+5. Apple $1 Tn
+6. Twitter $50Bn
