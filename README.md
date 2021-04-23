@@ -3935,3 +3935,6 @@ https://github.com/kevin11h/kart--KART-CART-CARTA-COIN-POKERMON-POKER-CRYPTOCURR
 5. Apple $1 Tn
 6. Twitter $50Bn
 7. https://github.com/kevin11h/Mobility-Mobile-Game-Referral-Rewards-Recruiting-Tip-20-Start-Salary-Base-Plus-EquCointerview-Quest Rule of 72 Invest in You 
+
+
+1. 72.co  Website name 72.co multiply 2X invest coinvestments
