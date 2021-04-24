@@ -3938,3 +3938,32 @@ https://github.com/kevin11h/kart--KART-CART-CARTA-COIN-POKERMON-POKER-CRYPTOCURR
 
 
 1. 72.co  Website name 72.co multiply 2X invest coinvestments
+2. 
+
+
+# 1. https://github.com/kevin11h/Main-Types-of-Infoproducts/blob/main/README.md
+# 2. Sidequests Coinquest Course Carts Carding  Prototype
+# 3. Crypto Referral Rewards Cointerview Flash Cards Mobile App Kivy Prototype
+
+1. PayPal EBay $50Bn
+2. Amazon $1000 Bn #KDP #DP digital products
+3. Gofundme
+4. Twitter $50Bn 
+5. Coinbase $1Bn
+
+
+1. Apps Books PoD print on demand products shipping delivery design artwork digital imaging digital collectibles digital goods
+2. https://github.com/kevin11h/Mobility-Mobile-Game-Referral-Rewards-Recruiting-Tip-20-Start-Salary-Base-Plus-EquCointerview-Quest Rule of 72 Invest in You 
+3. https://www.amazon.com/make-money-with-amazon/b?ie=UTF8&node=13605942011
+4. Sell products on Amazon
+Sell apps on Amazon
+Become an Affiliate
+Start a package delivery business
+Advertise Your Products
+Self-Publish with Us
+Host an Amazon Hub
+›See More Make Money with Us
+
+
+
+
