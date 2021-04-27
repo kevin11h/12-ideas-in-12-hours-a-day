@@ -3967,5 +3967,12 @@ Host an Amazon Hub
 # API Automated Arbitrage Twitter BTC SpotBot Market knowledge News Clips votes + Plus Python Kivy API Arbitrage Mobile Python App Submit a cointeresting news spot API get votes Pay to Pay 2 Post Advertise on Twitter BTC SpotBot + Get Paid Receive Payment Earn Coincome by Bounty Bounty by finding "SCOUTING"  Cointeresting Cryptos "Next Bitcoin" Challenge Bounty Hunt FScount Bounty Hunter Earn Coincome Bounty Hunter by scouting seeking the next new btc next bitcoin $BnX cryptoccurency
 
 # API Twitter #BTCSpotBot Automated Twitter +++ Plus Python Kivy Mobile App API APP 2 Post Submission
+1. https://github.com/kevin11h/Upload-YouTube-Videos-Get-Paid-Educational-EdTech
+2. https://github.com/kevin11h/YouTips-Upload-Crowdsourced-Youtube-Videos
+3. https://github.com/kevin11h/1-Post-Hackathon-BTCSpotBot
+
+Upload QR Code Image
+Info@spotbotbtc Contact us help
+
 
 
