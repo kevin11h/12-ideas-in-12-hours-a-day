@@ -4021,3 +4021,7 @@ https://github.com/kevin11h/CART-CALENDAR-CALCULATOR-CANDLESTICK-CHART-CALL-coin
 # RETAINER RECEPTIVITY TEST 
 
 https://github.com/kevin11h/-Local-Garage-Startup-Software-Close-To-Me-Near-Me-
+
+
+
+https://github.com/kevin11h/2-Years-2-Steps-2-Feet-From-Gold-2-Know-Myself-
