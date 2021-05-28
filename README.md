@@ -4040,3 +4040,7 @@ https://github.com/kevin11h/moblize-SEMINAR-SERIES-WEBINAR-SERIES-Yang-for-NY-Vo
 
 
 3. https://github.com/kevin11h/20-500-Ghurka-Garage-GGV-Alliance-Distribution-Tshirt-Crowdfunding-500-Tshirts
+
+4. https://github.com/kevin11h/BitWise-501c-Ask-Questions-Receive-Referral-Rewards-Chainalysis-Watching-Learning-Earning-Videos-Sta
+
+5. https://github.com/kevin11h/20-500-Ghurka-Garage-GGV-Alliance-Distribution-Tshirt-Crowdfunding-500-Tshirts Stanford U alumni
