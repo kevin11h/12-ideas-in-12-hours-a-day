@@ -3988,10 +3988,10 @@ Info@spotbotbtc Contact us help
 APP
 ART
 ADS Affilia Links Paid Placements
-# $\beta$
-BOOKS  (TESTAMENTS) PRINT ON DEMAND
-# $\gamma$
-CLOTHING (CLASSIC GENESIS COLOSSIANS) PRINT ON DEMAND
+# B $\beta$
+BOOKS  (TESTAMENTS) PRINT ON DEMAND COPYWRITING
+# C $\gamma$
+CLOTHING & CUPS PS 23 (CLASSIC GENESIS COLOSSIANS) PRINT ON DEMAND
 
 # D3
 DESIGN
@@ -4017,3 +4017,5 @@ https://github.com/kevin11h/Convert-Connect-
 https://github.com/kevin11h/crypto-bill-binance-birthday
 
 https://github.com/kevin11h/CART-CALENDAR-CALCULATOR-CANDLESTICK-CHART-CALL-coinsult-CALL-coinvites-CALL-cointacts
+
+# RETAINER RECEPTIVITY TEST 
