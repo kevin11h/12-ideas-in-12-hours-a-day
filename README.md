@@ -4031,3 +4031,7 @@ https://github.com/kevin11h/2-Years-2-Steps-2-Feet-From-Gold-2-Know-Myself-
 
 
 https://github.com/kevin11h/moblize-SEMINAR-SERIES-WEBINAR-SERIES-Yang-for-NY-Volunteer-Forward-Associate-
+
+
+
+1. Ghurka Garage GGV Alliance https://github.com/kevin11h/Ghurka-Garage-GGV-Alliance-Operational-Deployment-Distribution-Remote-Work-Effectiveness PDF
