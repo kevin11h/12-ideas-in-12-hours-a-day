@@ -4044,3 +4044,7 @@ https://github.com/kevin11h/moblize-SEMINAR-SERIES-WEBINAR-SERIES-Yang-for-NY-Vo
 4. https://github.com/kevin11h/BitWise-501c-Ask-Questions-Receive-Referral-Rewards-Chainalysis-Watching-Learning-Earning-Videos-Sta
 
 5. https://github.com/kevin11h/20-500-Ghurka-Garage-GGV-Alliance-Distribution-Tshirt-Crowdfunding-500-Tshirts Stanford U alumni
+
+
+# 1-Tweet-Per-Each-1-Minute-500000-1-2-Million-0.5MM-x-10-years-5MM
+1 Following Tweet Per Each 1 Minute ~= 500000 1/2 Million 0.5MM x 10 years = 5MM
