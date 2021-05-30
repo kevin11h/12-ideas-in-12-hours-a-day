@@ -4048,3 +4048,6 @@ https://github.com/kevin11h/moblize-SEMINAR-SERIES-WEBINAR-SERIES-Yang-for-NY-Vo
 
 # 1-Tweet-Per-Each-1-Minute-500000-1-2-Million-0.5MM-x-10-years-5MM
 1 Following Tweet Per Each 1 Minute ~= 500000 1/2 Million 0.5MM x 10 years = 5MM
+
+
+1. https://github.com/kevin11h/Steve-Clothe-Care-Forest-Walk-Binders-Informagics-Donation-
