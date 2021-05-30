@@ -4051,3 +4051,4 @@ https://github.com/kevin11h/moblize-SEMINAR-SERIES-WEBINAR-SERIES-Yang-for-NY-Vo
 
 
 1. https://github.com/kevin11h/Steve-Clothe-Care-Forest-Walk-Binders-Informagics-Donation-
+2. 700 = Arm 500 + Computer 200 700 2X Clear Create Clarity 70 10X
