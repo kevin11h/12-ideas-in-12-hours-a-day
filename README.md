@@ -4062,3 +4062,4 @@ https://github.com/kevin11h/moblize-SEMINAR-SERIES-WEBINAR-SERIES-Yang-for-NY-Vo
 # 1. Ask Ken https://github.com/kevin11h/-5K-5-000-Bucks-Emails-Project-10-000-10K-Emails
 2. https://github.com/kevin11h/Code-Priority
 3. https://github.com/kevin11h/Restock-New-Hats-Yang4NYC-Yang-For-NY
+4. https://github.com/kevin11h/Python-Mentorship-Core-Design-Site
