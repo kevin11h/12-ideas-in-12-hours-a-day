@@ -4068,3 +4068,16 @@ https://github.com/kevin11h/moblize-SEMINAR-SERIES-WEBINAR-SERIES-Yang-for-NY-Vo
 # 2. 24 + 240 + 300 / 3 ~= 200 hours X 10% = 20 Hours X 1% = 2 Hours Time / 7 - 10 < Minute Videos  12 - 20 / 7-10 Minutes Time Video Online Course Series + Extra Plus Premium Users Serious Students
 # 3. Glen + Andrew Ng
 4. https://en.wikipedia.org/wiki/Yukihiro_Matsumoto#Treasure_Data rubicon
+
+
+> matters is that these points can certainly be addressed, and we already
+have a working prototype. In the start-up world, having a prototype is an attractive
+quality, particularly when raising funds; if you're programming for fun mostly,
+it's even more so, as seeing a working product is greatly motivating
+
+> careful.. certainly possible to overcome
+every obstacle and deliver a product of exceptional quality to your users
+
+>  possibilities in this field, given the universal accessibility, are nothing short
+of endless
+
