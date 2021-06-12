@@ -4065,3 +4065,5 @@ https://github.com/kevin11h/moblize-SEMINAR-SERIES-WEBINAR-SERIES-Yang-for-NY-Vo
 4. https://github.com/kevin11h/Python-Mentorship-Core-Design-Site
 
 # 1. IDEAS+CST Course Videos Online Webinars &  College Course 1-2% of Avg Time
+# 2. 24 + 240 + 300 / 3 ~= 200 hours X 10% = 20 Hours X 1% = 2 Hours Time / 7 - 10 < Minute Videos  12 - 20 / 7-10 Minutes Time Video Online Course Series + Extra Plus Premium Users Serious Students
+# 3. Glen + Andrew Ng
