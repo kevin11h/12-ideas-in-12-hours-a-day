@@ -4063,3 +4063,5 @@ https://github.com/kevin11h/moblize-SEMINAR-SERIES-WEBINAR-SERIES-Yang-for-NY-Vo
 2. https://github.com/kevin11h/Code-Priority
 3. https://github.com/kevin11h/Restock-New-Hats-Yang4NYC-Yang-For-NY
 4. https://github.com/kevin11h/Python-Mentorship-Core-Design-Site
+
+# 1. IDEAS+CST Course Videos Online Webinars &  College Course 1-2% of Avg Time
