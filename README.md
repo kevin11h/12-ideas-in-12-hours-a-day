@@ -4098,7 +4098,7 @@ https://github.com/kevin11h/2-Steps-2-feet-from-Victory-Gold-1.-Hello-Kivy-2.-AY
 4. LEARN CODE
 5. VNEWS & NOTIFICATIONS + ALARM
 6. Ebay PayPal Coinbase GoFundMe Venmo Amazon
-7. 
+7. https://github.com/kevin11h/MOBILE-APP-SRE-SOCIAL-MOBILE-APP-RECOMMENDATION-ENGINE-APP
 
 
 1. https://github.com/kevin11h/MOBILE-PHOTO-IMAGE-2-TSHIRT-SALES-ADVERTISEMENT
