@@ -4099,3 +4099,9 @@ https://github.com/kevin11h/2-Steps-2-feet-from-Victory-Gold-1.-Hello-Kivy-2.-AY
 5. VNEWS & NOTIFICATIONS + ALARM
 6. Ebay PayPal Coinbase GoFundMe Venmo Amazon
 7. 
+
+
+1. https://github.com/kevin11h/MOBILE-PHOTO-IMAGE-2-TSHIRT-SALES-ADVERTISEMENT
+2. BITTEES Walking Wallets #BTC Tshirts
+3. https://github.com/kevin11h/ArbiBot-Abritrage-Data-Set-CSV-File
+4. APPBEES Four-Flower Five Star Fish SOCIAL APP USAGE CONNECT WITH FRIENDS WHAT APPS ARE YOUR FRIENDS USING? Mobile Contact Book
