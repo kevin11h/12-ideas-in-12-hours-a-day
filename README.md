@@ -4097,3 +4097,5 @@ https://github.com/kevin11h/2-Steps-2-feet-from-Victory-Gold-1.-Hello-Kivy-2.-AY
 3. \* QR SCANNER \* AUTHENTICATOR SECURITY \* FLASH LIGHT \* DIGITAL COMPASS \* WEATHER \*
 4. LEARN CODE
 5. VNEWS & NOTIFICATIONS + ALARM
+6. Ebay PayPal Coinbase GoFundMe Venmo Amazon
+7. 
