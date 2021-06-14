@@ -4112,3 +4112,6 @@ https://github.com/kevin11h/callhub-examples
 1. COINTACTS
 
 1. https://www.amazon.com/Remains-Day-Kazuo-Ishiguro/dp/0679731725
+
+
+1. http://bibleonmoney.finance.blog/
