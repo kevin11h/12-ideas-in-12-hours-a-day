@@ -4121,3 +4121,9 @@ https://github.com/kevin11h/webogram
 
 
 https://github.com/kevin11h/COINCISION-COINCISE.
+
+# https://github.com/kevin11h/global-btc-usd-daily-price-chart-feed-finance-yahoo-google-CSV
+# Survey Video Rewards
+# Book Contacts Sync
+# Cointacts Sync Scheduler
+# 
