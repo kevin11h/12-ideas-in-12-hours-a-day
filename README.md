@@ -4127,3 +4127,10 @@ https://github.com/kevin11h/COINCISION-COINCISE.
 # Book Contacts Sync
 # Cointacts Sync Scheduler
 # 
+
+
+
+# The Parables of Jesus Participant's Guide (Deeper Connections)
+https://www.amazon.com/gp/slredirect/picassoRedirect.html/ref=pa_sp_atf_stripbooks_sr_pg1_1?ie=UTF8&adId=A03565511KKBOJ83MK7LG&url=%2FParables-Jesus-Participants-Deeper-Connections%2Fdp%2F1628627654%2Fref%3Dsr_1_2_sspa%3Fdchild%3D1%26keywords%3DParables%2Bof%2BJesus%26qid%3D1623802325%26s%3Dbooks%26sr%3D1-2-spons%26psc%3D1&qualifier=1623802325&id=5684207812156255&widgetName=sp_atf
+
+![](https://m.media-amazon.com/images/I/51vinxr5CjL._AC_UL480_FMwebp_QL65_.jpg)
