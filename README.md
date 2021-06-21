@@ -4140,3 +4140,6 @@ https://www.amazon.com/Exalting-Proverbs-Christ-Centered-Exposition-Commentary/d
 
 # https://www.goodreads.com/
 https://github.com/kevin11h/canva-invoice
+
+
+# 1. Emogen https://github.com/kevin11h/EmojiPay-Buy-Stickers-Like-Means-Pay-Same-Amount/blob/main/README.md
