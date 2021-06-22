@@ -4147,3 +4147,6 @@ https://github.com/kevin11h/canva-invoice
 
 
 1. 1024KQBI.Networks Digital Dividend Distribution Subscription Network https://github.com/kevin11h/1024KQBI-Game-NFT-Matching-Game-Sticker-Series-Quadratic-Basic-Income-2048 KQBI 
+2. https://github.com/kevin11h/Psalm-91-Kill-RANTO-Random-Automatic-Negative-Thoughts-Obssessive-Psalm-91
+
+3. https://github.com/kevin11h/DeFi-Defiance-Definance-Decentralized-Finance
