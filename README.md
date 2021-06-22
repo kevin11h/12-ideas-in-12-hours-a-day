@@ -4143,3 +4143,7 @@ https://github.com/kevin11h/canva-invoice
 
 
 # 1. Emogen https://github.com/kevin11h/EmojiPay-Buy-Stickers-Like-Means-Pay-Same-Amount/blob/main/README.md
+
+
+
+1. 1024KQBI.Networks Digital Dividend Distribution Subscription Network https://github.com/kevin11h/1024KQBI-Game-NFT-Matching-Game-Sticker-Series-Quadratic-Basic-Income-2048 KQBI 
