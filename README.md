@@ -4154,3 +4154,6 @@ https://github.com/kevin11h/canva-invoice
 1. Emergency Fundraisers https://www.gofundme.com/manage/1024kqbi-subscription-network-experimental-trial
 
 2. https://github.com/kevin11h/New-Sites-New-Sights-New-Mind-Nous
+
+
+1. Emergency Fundraising Ideas https://github.com/kevin11h/Emergency-Fundraising-Ideas
