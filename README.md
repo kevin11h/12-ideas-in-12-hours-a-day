@@ -4157,3 +4157,13 @@ https://github.com/kevin11h/canva-invoice
 
 
 # 1. Emergency Fundraising Ideas https://github.com/kevin11h/Emergency-Fundraising-Ideas
+
+
+
+# 1. https://github.com/kevin11h/Code-Priority
+# https://github.com/kevin11h/Code-Priority/blob/main/README.md
+## 1. Python Product Prototype Python Learn Programming App
+## 2. Coinvesting 200/500 Existing FinTech Product + Self = No One PR responsibility
+## 3. Passive IIPP OWP OPP Product Pass
+## 4. Grant Good Team Visit
+## 5. Hx = People + Product + Judgment
