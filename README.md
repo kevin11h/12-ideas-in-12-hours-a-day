@@ -4192,3 +4192,6 @@ https://github.com/kevin11h/canva-invoice
 ## 3. Passive IIPP OWP OPP Product Pass
 ## 4. Grant Good Team Visit
 ## 5. Hx = People + Product + Judgment
+
+
+# https://github.com/kevin11h/MAAP-Money-as-a-Product
