@@ -4292,3 +4292,6 @@ https://github.com/kevin11h/Projects-1.-Prototype-2.-Investing-3.-Product-Existi
 
 # UBI Wallet
 
+# BTC WALLET TUTORIAL PYTHON LEARNING
+# https://github.com/kevin11h/python-wallet-tutorial-minutes-code-github/blob/main/README.md
+# https://algotrading101.com/learn/binance-python-api-guide/
