@@ -4296,20 +4296,20 @@ https://github.com/kevin11h/Projects-1.-Prototype-2.-Investing-3.-Product-Existi
 # https://github.com/kevin11h/python-wallet-tutorial-minutes-code-github/blob/main/README.md
 # https://algotrading101.com/learn/binance-python-api-guide/
 
-
+# https://github.com/kevin11h/777-Numismagic-Dan-Lok-Sidequest-Coinquests-Revenue-Reflection-Cointrospections-Strategy-EvolveLearn
 # 0. +$1K Self 12 Mo.
 # 1. $2K 1/2 Mo.s=6 2X Shu Fish of Faith Bread of Brotherhood Andrew and St. Symeon Simon Peter
 # 2. 2X - $3K = $1.4 + $500 + $1.2 gov check 2X match
 # 3. $15K Heavenly Father Provisions Protection
-# 4. + $5K BTC Bread 12 Mo.s
+# 4. + $5K BTC Bread 12 Mo.s 5X
 -$2K
 $500 Donations Books Clothes Cups
 $500 Books Blankets
 $500 Digital Video Subscription 2 Weeks
-$500 Investments 
+$500 Investments 5X MINISTRY MULTIPLIER
 =======================================
 # Investment Subscription Strategic UBI Network
-
+# TITHING 10X THX GRACE GRATITUDE 1000X
 
 # UBI Network https://github.com/kevin11h/1000KQBI-Matching-Game-NFT-NanoAuction-Network-
 # https://github.com/kevin11h/1000KQBI-Matching-Game-NFT-NanoAuction-Network-
@@ -4368,7 +4368,7 @@ $500 Investments
 # https://github.com/kevin11h/2021-Projecs
 
 https://github.com/kevin11h/Projects-1.-Prototype-2.-Investing-3.-Product-Existing-Distribution-4.-HX-people-pre-selection-team
-
+# https://github.com/kevin11h/777-Numismagic-Dan-Lok-Sidequest-Coinquests-Revenue-Reflection-Cointrospections-Strategy-EvolveLearn
 1. Prototype
 2. Investing
 3. Product Existing Distribution
@@ -4380,5 +4380,21 @@ https://github.com/kevin11h/Projects-1.-Prototype-2.-Investing-3.-Product-Existi
 # BTC WALLET TUTORIAL PYTHON LEARNING
 # https://github.com/kevin11h/python-wallet-tutorial-minutes-code-github/blob/main/README.md
 # https://algotrading101.com/learn/binance-python-api-guide/
+# https://github.com/kevin11h/777-Numismagic-Dan-Lok-Sidequest-Coinquests-Revenue-Reflection-Cointrospections-Strategy-EvolveLearn
 
 # Investment Subscription Strategic UBI Network
+
+# 1. DONATIONS DIRECT DIGITAL DIVIDENDS D3 DATA PRODUCTS
+# 2. INVESTMENT INTERESTS ATTENTION ACTIVITY INCREASING INVESTMENT INTERACTIVITY
+# 3. SUBSCRIPTION "SERVICE" MAAP MAAP = MONEY AS PRODUCT recurring revenue # UBI Wallet
+# 4. MERCHANDISE MULTIPLY 8X MULTIPLIER 10X $40BnX
+# 5. PRODUCTS DIGITAL DATA PRODUCTS INFORMATION PRODUCTS
+# 6. LEASE LENDER / RENTAL ROYALTY + CREATIVE CREDITS B1SA CAPITAL ASSETS PROVIDER OWNER OF PROPERTY MANAGEMENT
+# 7.1 PAY PER PAGE
+# 7.2 PAY PER CLICK affiliate links networking advertising digitla marketing
+# 7.3 PAY PER TX transaction
+
+
+# Investment Subscription Strategic UBI Network
+
+# ALWAYS ASK 20% OFF DISCOUNT / 80% CHEAP CUSTOMERS JOHN LEE BUSINESS HACKS
