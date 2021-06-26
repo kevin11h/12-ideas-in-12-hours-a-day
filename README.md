@@ -4423,3 +4423,5 @@ https://github.com/kevin11h/Projects-1.-Prototype-2.-Investing-3.-Product-Existi
 # https://nostarch.com/programwithminecraft
 
 # 0. MEMBERSHIP SITE SUBSCRIPTION "SERVICE" MAAP MAAP = MONEY AS PRODUCT recurring revenue RETENTION # UBI Wallet https://www.amazon.com/gp/product/B078GCWL9D/ref=dbs_a_def_rwt_hsch_vapi_tkin_p1_i0
+
+https://boardgames.lovetoknow.com/Board_Game_Gift_Ideas
