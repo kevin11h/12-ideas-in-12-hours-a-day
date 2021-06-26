@@ -4390,8 +4390,8 @@ https://github.com/kevin11h/Projects-1.-Prototype-2.-Investing-3.-Product-Existi
 # 4. MERCHANDISE MULTIPLY 8X MULTIPLIER 10X $40BnX
 # 5. PRODUCTS DIGITAL DATA PRODUCTS INFORMATION PRODUCTS
 # 6. LEASE LENDER / RENTAL ROYALTY + CREATIVE CREDITS B1SA CAPITAL ASSETS PROVIDER OWNER OF PROPERTY MANAGEMENT
-# 7.1 PAY PER PAGE
-# 7.2 PAY PER CLICK affiliate links networking advertising digitla marketing
+# 7.1 PAY PER PAGE web works 
+# 7.2 PAY PER CLICK affiliate links networking advertising digital marketing #COMPELLING #CONTENT sometimes subjective 
 # 7.3 PAY PER TX transaction
 
 
