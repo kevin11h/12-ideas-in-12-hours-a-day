@@ -4295,3 +4295,90 @@ https://github.com/kevin11h/Projects-1.-Prototype-2.-Investing-3.-Product-Existi
 # BTC WALLET TUTORIAL PYTHON LEARNING
 # https://github.com/kevin11h/python-wallet-tutorial-minutes-code-github/blob/main/README.md
 # https://algotrading101.com/learn/binance-python-api-guide/
+
+
+# 0. +$1K Self 12 Mo.
+# 1. $2K 1/2 Mo.s=6 2X Shu Fish of Faith Bread of Brotherhood Andrew and St. Symeon Simon Peter
+# 2. 2X - $3K = $1.4 + $500 + $1.2 gov check 2X match
+# 3. $15K Heavenly Father Provisions Protection
+# 4. + $5K BTC Bread 12 Mo.s
+-$2K
+$500 Donations Books Clothes Cups
+$500 Books Blankets
+$500 Digital Video Subscription 2 Weeks
+$500 Investments 
+=======================================
+# Investment Subscription Strategic UBI Network
+
+
+# UBI Network https://github.com/kevin11h/1000KQBI-Matching-Game-NFT-NanoAuction-Network-
+# https://github.com/kevin11h/1000KQBI-Matching-Game-NFT-NanoAuction-Network-
+# Game of Strategy Skill Random Chance Luck Actually Strategic UBI
+
+
+
+
+
+
+1. Emergency Fundraisers https://www.gofundme.com/manage/1024kqbi-subscription-network-experimental-trial
+
+2. https://github.com/kevin11h/New-Sites-New-Sights-New-Mind-Nous
+
+
+# 1. Emergency Fundraising Ideas https://github.com/kevin11h/Emergency-Fundraising-Ideas
+
+
+
+
+# 1. https://github.com/kevin11h/Code-Priority
+# https://github.com/kevin11h/Code-Priority/blob/main/README.md
+## 1. Python Product Prototype Python Learn Programming App
+## 2. Coinvesting 200/500 Existing FinTech Product + Self = No One PR responsibility
+## 3. Passive IIPP OWP OPP Product Pass
+## 4. Grant Good Team Visit
+## 5. Hx = People + Product + Judgment
+
+
+
+
+
+
+# 0. Script Prototype SCRIPTING BITSCRIPTS TwitterBots PriceBot BTC
+# 1. https://github.com/kevin11h/Code-Priority
+# https://github.com/kevin11h/Code-Priority/blob/main/README.md
+## 1. Python Product Prototype Python Learn Programming App
+## 2. Coinvesting 200/500 Existing FinTech Product + Self = No One PR responsibility
+## 3. Passive IIPP OWP OPP Product Pass
+## 4. Grant Good Team Visit
+## 5. Hx = People + Product + Judgment
+
+
+# 1. https://github.com/kevin11h/Code-Priority
+# https://github.com/kevin11h/Code-Priority/blob/main/README.md
+# 0. Script Prototype SCRIPTING BITSCRIPTS TwitterBots PriceBot BTC
+## 1. Python Product Prototype Python Learn Programming App
+## 2. Coinvesting 200/500 Existing FinTech Product + Self = No One PR responsibility
+## 3. Passive IIPP OWP OPP Product Pass
+## 4. Grant Good Team Visit
+## 5. Hx = People + Product + Judgment
+
+
+# https://github.com/kevin11h/MAAP-Money-as-a-Product
+
+# https://github.com/kevin11h/2021-Projecs
+
+https://github.com/kevin11h/Projects-1.-Prototype-2.-Investing-3.-Product-Existing-Distribution-4.-HX-people-pre-selection-team
+
+1. Prototype
+2. Investing
+3. Product Existing Distribution
+4. HX (people pre-selection team)
+# https://github.com/kevin11h/Projects-1.-Prototype-2.-Investing-3.-Product-Existing-Distribution-4.-HX-people-pre-selection-team
+
+# UBI Wallet
+
+# BTC WALLET TUTORIAL PYTHON LEARNING
+# https://github.com/kevin11h/python-wallet-tutorial-minutes-code-github/blob/main/README.md
+# https://algotrading101.com/learn/binance-python-api-guide/
+
+# Investment Subscription Strategic UBI Network
