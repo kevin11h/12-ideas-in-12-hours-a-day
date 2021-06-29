@@ -4446,3 +4446,9 @@ https://boardgames.lovetoknow.com/Board_Game_Gift_Ideas
 
 # https://moneydoneright.com/passive-income/stock-investing/free-stocks/
 ## $10 public / stash $5
+
+
+
+
+# Emergency UBI Fund Manager  https://github.com/kevin11h/New-Title-Coinage-Managers-For-BI-Fund-Manager
+# Emergency Cash Relief 2019-2020-2021 Consecutive Crises 
