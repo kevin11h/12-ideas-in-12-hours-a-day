@@ -4443,3 +4443,6 @@ https://boardgames.lovetoknow.com/Board_Game_Gift_Ideas
 
 
 # https://github.com/kevin11h/-20-One-20-ETH-30-LTC
+
+# https://moneydoneright.com/passive-income/stock-investing/free-stocks/
+## $10 public / stash $5
