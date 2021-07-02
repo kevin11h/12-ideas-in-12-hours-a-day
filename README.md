@@ -4458,4 +4458,29 @@ https://boardgames.lovetoknow.com/Board_Game_Gift_Ideas
 
 # https://github.com/kevin11h/Free-Stock-Five-Bucks-Stock-Stash-App
 
-https://github.com/kevin11h/NUBI-NETWORK-NANO-UBI
+https://github.com/kevin11h/NUBI-NETWORK-NANO-UBI NUbi
+UBIV := UBIverse
+https://github.com/kevin11h/2021-Projecs/blob/main/README.md
+
+
+
+
+
+# https://github.com/kevin11h/TwitterBot-Daily-Bible-Verse
+
+
+# https://github.com/kevin11h/-20-One-20-ETH-30-LTC
+
+# https://moneydoneright.com/passive-income/stock-investing/free-stocks/
+## $10 public / stash $5
+
+
+
+
+# Emergency UBI Fund Manager  https://github.com/kevin11h/New-Title-Coinage-Managers-For-BI-Fund-Manager
+# Emergency Cash Relief 2019-2020-2021 Consecutive Crises 
+
+
+# INTEREST ANOTHER TERM 4 RESPECT
+
+# https://github.com/kevin11h/Free-Stock-Five-Bucks-Stock-Stash-App
