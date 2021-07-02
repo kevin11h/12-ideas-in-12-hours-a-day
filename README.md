@@ -4484,3 +4484,4 @@ https://github.com/kevin11h/2021-Projecs/blob/main/README.md
 # INTEREST ANOTHER TERM 4 RESPECT
 
 # https://github.com/kevin11h/Free-Stock-Five-Bucks-Stock-Stash-App
+# https://github.com/kevin11hg/Mastering-Python-for-Finance-Second-Edition-1/blob/master/Chapter06/Chapter%2006%20-%20Statistical%20Analysis%20of%20Time%20Series%20Data.ipynb
