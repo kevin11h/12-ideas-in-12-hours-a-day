@@ -4490,3 +4490,8 @@ https://github.com/kevin11hg/Mastering-Python-for-Finance-Second-Edition-1/blob/
 
 
 https://github.com/jamesmawm/Mastering-Python-for-Finance-source-codes/blob/master/B03898_06_codes/Chapter%206%20Notebook.ipynb
+
+
+https://github.com/kevin11h/Wallet-X-Arbitrage-Adventure-BTC-Crypto-Wallet
+
+https://github.com/kevin11h/Arbitrage-Adventures-Twitter-Machine-Market-Maker
