@@ -4507,3 +4507,22 @@ https://github.com/kevin11h/Arbitrage-Adventures-Twitter-Machine-Market-Maker
 #  https://github.com/kevin11h/2021-Projectives
 
 
+# https://github.com/kevin11h/Bible-and-Boba-Shop
+
+
+# https://github.com/kevin11h/-20-One-20-ETH-30-LTC
+
+# https://moneydoneright.com/passive-income/stock-investing/free-stocks/
+## $10 public / stash $5
+
+
+
+
+
+ 
+# Emergency UBI Fund Manager  https://github.com/kevin11h/New-Title-Coinage-Managers-For-BI-Fund-Manager
+# Emergency Cash Relief 2019-2020-2021 Consecutive Crises 
+# INTEREST ANOTHER TERM 4 RESPECT
+
+# https://github.com/kevin11h/Free-Stock-Five-Bucks-Stock-Stash-App
+# https://github.com/kevin11hg/Mastering-Python-for-Finance-Second-Edition-1/blob/master/Chapter06/Chapter%2006%20-%20Statistical%20Analysis%20of%20Time%20Series%20Data.ipynb
