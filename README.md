@@ -4536,3 +4536,16 @@ https://www.youtube.com/watch?v=6jvR3fZcb0w
   | Flask | $2K | 2 wx | 2 wx | $1K / 1 wx |
   | btc | $5K | 200 wx | 200 wx | $25 BTC / 1 wx |
   | Bayes | $5K | 12 wx | 2 wx | $500 / 1 wx |
+
+
+
+# Binance
+1. https://academy.binance.com/cs/articles/what-is-bitcoin
+2. https://academy.binance.com/cs/articles/what-is-arbitrage-trading
+3. https://academy.binance.com/en/articles/bid-ask-spread-and-slippage-explained
+4. https://academy.binance.com/en/articles/what-is-margin-trading
+5. https://academy.binance.com/cs/articles/how-to-calculate-return-on-investment-roi
+6. https://academy.binance.com/cs/articles/what-is-a-network-effect
+7. https://academy.binance.com/cs/articles/how-to-mine-bitcoin
+
+https://github.com/kevin11h/7-Step-Blockchain/blob/master/README.md
