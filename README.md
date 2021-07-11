@@ -4528,3 +4528,11 @@ https://github.com/kevin11h/Arbitrage-Adventures-Twitter-Machine-Market-Maker
 # https://github.com/kevin11hg/Mastering-Python-for-Finance-Second-Edition-1/blob/master/Chapter06/Chapter%2006%20-%20Statistical%20Analysis%20of%20Time%20Series%20Data.ipynb
 
 # https://github.com/kevin11h/Aesthetic-Formatted-HTML-Email-Messages
+# https://github.com/kevin11h/Flask-Faith-Finish-Task-Ask-Well-BTC-Bread-BTC-Bros-Binance-Binders-Institute-Bayes-Revere-FrameWork/blob/main/README.md
+# Flask-Faith-Finish-Task-Ask-Well-BTC-Bread-BTC-Bros-Binance-Binders-Institute-Bayes-Revere-FrameWork
+https://www.youtube.com/watch?v=6jvR3fZcb0w
+  | Book Name | Profitability Potential | Time Frame | Learning Time | Profit Per Week |
+  | :-: | :-: | :-: | :-: | :-: |
+  | Flask | $2K | 2 wx | 2 wx | $1K / 1 wx |
+  | btc | $5K | 200 wx | 200 wx | $25 BTC / 1 wx |
+  | Bayes | $5K | 12 wx | 2 wx | $500 / 1 wx |
