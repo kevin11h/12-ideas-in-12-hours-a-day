@@ -4565,3 +4565,7 @@ AXIOS-etymology
 "Etymology ἄγω (ágō) +‎ -τιος (-tios), with the verb in the sense "draw down (in the scale)", hence "weigh, import". Compare the meanings again of weighing in Latin exāmen of same root." https://en…
 
 # AXION AXIOS AXION WALLETX
+
+ACUMENITY
+
+ABC Ameno Bread Capital 
