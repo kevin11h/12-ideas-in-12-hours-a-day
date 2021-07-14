@@ -4553,3 +4553,9 @@ https://github.com/kevin11h/7-Step-Blockchain/blob/master/README.md
 https://github.com/kevin11h/web-automation-python
 
 # Auction Pokemon Cards
+
+Thx Thanks Reminder Thank Doctor James
+
+# PATREON & SUBSCTACK SUBSCRIPTION PAYMENT INSTANT SUBSCRIPTION SITES
+
+# NEW SITES SUBSTACK SUBSCRIPTION PAYMENTS ACCESS
