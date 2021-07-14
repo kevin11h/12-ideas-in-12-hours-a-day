@@ -4549,3 +4549,7 @@ https://www.youtube.com/watch?v=6jvR3fZcb0w
 7. https://academy.binance.com/cs/articles/how-to-mine-bitcoin
 
 https://github.com/kevin11h/7-Step-Blockchain/blob/master/README.md
+
+https://github.com/kevin11h/web-automation-python
+
+# Auction Pokemon Cards
