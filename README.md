@@ -4569,3 +4569,6 @@ AXIOS-etymology
 ACUMENITY
 
 ABC Ameno Bread Capital 
+
+# COINTRACT COINAGES
+# Coinventive-Coinsignia-Coinsigner-Sign-On-Bonus-Coinsignals-Coin-
