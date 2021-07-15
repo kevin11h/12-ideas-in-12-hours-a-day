@@ -4566,9 +4566,43 @@ AXIOS-etymology
 
 # AXION AXIOS AXION WALLETX
 
-ACUMENITY
+# ACUMENITY
 
-ABC Ameno Bread Capital 
+# ABC Ameno Bread Capital 
 
 # COINTRACT COINAGES
 # Coinventive-Coinsignia-Coinsigner-Sign-On-Bonus-Coinsignals-Coin-
+# Uni-Son-Jesus-Son-of-Man-ICHTHYS-
+# Uni-Son-Jesus-Son-of-Man-ICHTHYS-
+# https://github.com/kevin11h/10p-10-APR-BlockFi-
+
+# AUTODRADERX AXION AXIOS AXION WALLETX
+
+# https://github.com/kevin11h/Saint-Paul-Saul-Apostle-Tentmaker-Tabernacle-Maker-
+# 
+https://github.com/kevin11h/Skill-Kraft-Trade
+
+# https://github.com/kevin11h/Ameno-Bread-Epiousios-https-en.wikipedia.org-wiki-Epiousios-1-00
+
+https://github.com/kevin11h/Learn-and-Earn-Free-binance-bnb-crypto-bitcoin-learn-and-earn-Binance-Coinbase
+
+https://github.com/kevin11h/Free-Sign-Up-Stock-Public-Dough-Nvstr
+https://github.com/kevin11h/Free-Stock-Five-Bucks-Stock-Stash-App
+https://github.com/kevin11h/Referral-Tony-Phan-Free-Blockfi-BTC-Bitcoin
+
+# PATREON SUBSTACK  https://github.com/kevin11h/Sphinx-Slack-Gitbook-Trello-Gusto
+# https://github.com/kevin11h/peregrine
+# https://github.com/kevin11h/TwitterBot-Daily-Bible-Verse
+
+# https://github.com/kevin11h/UBIX-Network
+# https://github.com/kevin11h/Emergency-Fundraising-Ideas
+# https://github.com/kevin11h/WTF-QF-MATCH
+# https://github.com/kevin11h/hyper-nodes-super-coinnectors
+# https://github.com/kevin11h/AudioBooks-By-Joni
+# https://github.com/kevin11h/kivy-android-notifications-
+# https://github.com/kevin11h/ArbiBot-Abritrage-Data-Set-CSV-File
+https://github.com/kevin11h/Science-Hat-Science-Discipline-Discover-Discience
+https://github.com/kevin11h/DO3-Donate-Download-Documentation-Donations-Directory-Cointacts-Coinvites-Coinverts
+https://github.com/kevin11h/Use-50-Coupon-Code-to-Buy-Minecraft-Programming-Game-Book-To-Tutor-For-Glen
+https://github.com/kevin11h/Ask-4-Twitter-Help-Twitter-Support-You-7-Minute-Appeal
+https://github.com/kevin11h/BlockFi-Deposit-Deal
